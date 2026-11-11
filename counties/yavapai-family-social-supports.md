@@ -1,0 +1,10 @@
+# Family & Social Supports in Yavapai County: Be Connected resources
+
+## Listed as serving Yavapai County under Family & Social Supports (2)
+
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Yavapai County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Overall family stress.
+- **Substance Use Disorders — West Yavapai Guidance Clinic** — serves Yavapai County · (928) 445-5211 · addresses in Prescott, Prescott Valley. Listed under: Residential treatment, Inpatient, Relationships (spouses, significant others), Overall family stress, Substance use.
+
+## About this page
+
+This page lists every program in the directory that Be Connected lists as serving Yavapai County under the topic Family & Social Supports. It is the full list for that county and topic. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

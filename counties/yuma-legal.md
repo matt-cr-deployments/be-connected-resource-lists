@@ -1,0 +1,9 @@
+# Legal in Yuma County: Be Connected resources
+
+## Listed as serving Yuma County under Legal (1)
+
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Landlord/tenant, Other.
+
+## About this page
+
+This page lists every program in the directory that Be Connected lists as serving Yuma County under the topic Legal. It is the full list for that county and topic. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.
