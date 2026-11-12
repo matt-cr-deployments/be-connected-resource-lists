@@ -1,23 +1,13 @@
 # Be Connected resources in Phoenix, Arizona
 
-- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol.
-- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol.
-- **Family Housing Hub — UMOM New Day Centers** — in Phoenix: 3307 E. Van Buren Street, #108, Phoenix 85008 · (602) 595-8700. Listed under: Homelessness, Finding housing, Emergency shelter, Transitional housing, Permanent supportive housing.
-- **Family Housing Hub — UMOM New Day Centers** — in Phoenix: 10550 W Mariposa St, Phoenix 85037 · (602) 595-8700. Listed under: Homelessness, Finding housing, Emergency shelter, Transitional housing, Permanent supportive housing.
-- **Freedom Care Program — Valley Hospital** — in Phoenix: 3550 E Pinchot Ave, Phoenix 85018 · (602) 952-3939. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General mental health services, ADHD, Anger.
-- **Halle Women's Center — UMOM New Day Centers** — in Phoenix: 3333 E Van Buren, Phoenix 85008. Listed under: Homelessness, Emergency shelter.
-- **Homeless Services program — DES Division of Aging and Adult Services** — in Phoenix: 3307 E Van Buren St, No 108, Phoenix 85008 · (602) 595-8700. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
-- **Housing Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Avenue, Phoenix 85007 · (602) 256-6945. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing, Landlord/tenant.
-- **Intensive Outpatient Program (IOP) — Quail Run Behavioral Health** — in Phoenix: 2545 W Quail Ave, Phoenix 85027. Listed under: Intensive outpatient (IOP), General mental health services, Anxiety, Mental health wellness, Grief & loss, Transition & reintegration, Trauma.
-- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Foreclosure prevention, Eviction prevention, Affordable housing programs, Finding housing, Landlord/tenant, Other.
-- **MANA House — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Rapid re-housing.
-- **Substance Use-Addiction Treatment — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Detox, Residential treatment, Intensive outpatient (IOP), Medication-assisted treatment, Alcohol, Drugs, Prescription medication.
-- **Supportive Services for Veteran Families — U.S. VETS - Phoenix** — in Phoenix: 3507 North Central Avenue, Suite 302, Phoenix 85012 · (602) 757-9723. Listed under: Finding housing, Rapid re-housing, Homelessness, Emergency shelter, Transitional housing, Affordable housing programs.
-- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing, Co-occurring disorders (mental health/substance use), General mental health services, Mental health wellness, Transition & reintegration, Felony.
-- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing, Co-occurring disorders (mental health/substance use), General mental health services, Mental health wellness, Transition & reintegration, Felony.
-- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing, Co-occurring disorders (mental health/substance use), General mental health services, Mental health wellness, Transition & reintegration, Felony.
-- **Transitional Housing — Chrysalis Shelter** — in Phoenix: 2055 W. Northern Ave, Phoenix 85021. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing.
+Programs with an address in Phoenix, listed by topic:
 
-## About this page
-
-This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.
+- [Housing & Homelessness in Phoenix](phoenix-housing-homelessness.md): 120 programs
+- [Mental Health & Substance Use in Phoenix](phoenix-mental-health-substance-use.md): 210 programs
+- [Finances & Benefits in Phoenix](phoenix-finances-benefits.md): 155 programs
+- [Legal in Phoenix](phoenix-legal.md): 83 programs
+- [Employment in Phoenix](phoenix-employment.md): 126 programs
+- [Physical Health in Phoenix](phoenix-physical-health.md): 231 programs
+- [Family & Social Supports in Phoenix](phoenix-family-social-supports.md): 363 programs
+- [Higher Education in Phoenix](phoenix-higher-education.md): 30 programs
+- [Spirituality in Phoenix](phoenix-spirituality.md): 33 programs

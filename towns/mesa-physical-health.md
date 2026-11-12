@@ -1,0 +1,86 @@
+# Physical Health: Be Connected resources in Mesa, Arizona
+
+- **Addiction Treatment During Pregnancy — Intensive Treatment Systems** — in Mesa: 340 W University Dr., #19, Mesa 85201 · (855) 245-6350. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — in Mesa: 40 N Center St, Suite 200, Mesa 85201 · (480) 467-4337. Listed under: Aging health issues.
+- **Assertive Community Treatment (ACT) — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: General health issues, Wellness.
+- **Aster Senior Centers — Aster Aging, Inc.** — in Mesa: 247 N. Macdonald St., Mesa 85201 · (480) 962-5612. Listed under: Aging health issues, Chronic disease, Wellness, Weight management.
+- **Aster Senior Centers — Aster Aging, Inc.** — in Mesa: 7550 E. Adobe St., Mesa 85207 · (480) 218-2221. Listed under: Aging health issues, Chronic disease, Wellness, Weight management.
+- **Behavioral Health Programs — A New Leaf, Mesa Community Action Network (MesaCAN)** — in Mesa: 1655 E. University Dr., Mesa 85203 · (480) 969-6955. Listed under: Wellness, General health issues.
+- **Benefits Enrollment Center — Aster Aging, Inc.** — in Mesa: 247 N. Macdonald St., Mesa 85201 · (480) 962-5612. Listed under: Aging health issues, Wellness, Chronic disease.
+- **Benefits Enrollment Center — Aster Aging, Inc.** — in Mesa: 7550 E. Adobe St., Mesa 85207 · (480) 218-2221. Listed under: Aging health issues, Wellness, Chronic disease.
+- **CBI Adolescent Services — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — in Mesa: 554 S. Bellview, Mesa 85204 · (480) 649-1141. Listed under: Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Mesa 85204 · (480) 962-7711. Listed under: Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Rooms B & C, Mesa 85204 · (480) 962-7711. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Room A, Mesa 85204 · (480) 962-7711. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Supportive Services For Veteran Families (SSVF) Program — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. 
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Room A, Mesa 85204 · (480) 962-7711. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 554 S. Bellview, Room A, Mesa 85204 · (480) 461-1711. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Women & Children Programs — Community Bridges, Inc.** — in Mesa: 554 S. Bellview, Room A, Mesa 85204 · (480) 461-1711. Listed under: Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Rooms B & C, Mesa 85204 · (480) 962-7711. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Forensic Assertive Community Treatment (FACT) — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: Residential treatment, Wellness, General health issues.
+- **Group/Individual/Family Counseling — Intensive Treatment Systems** — in Mesa: 340 W University Dr., #19, Mesa 85201 · (855) 245-6350. Listed under: Wellness.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Inpatient, Wellness.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Rooms B & C, Mesa 85204 · (480) 962-7711. Listed under: Detox, Inpatient, Wellness.
+- **ITS Intensive Outpatient Program (IOP) — Intensive Treatment Systems** — in Mesa: 340 W University Dr., #19, Mesa 85201 · (855) 245-6350. Listed under: Detox, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Mesa: 6116 E Arbor Ave, Suite 104, Mesa 85206 · (480) 499-4599. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Mesa: 2940 E. Main Street, Mesa 85213 · (480) 977-1500. Listed under: Medication-assisted treatment, Wellness.
+- **Mesa - Silvercrest Senior Citizens' Residence — The Salvation Army (Bullhead City/Laughlin Corps)** — in Mesa: 255 E. 6th Street, Mesa 85201 · (480) 649-9117. Listed under: Aging health issues, Wellness.
+- **Mesa Vet Center — Tucson Vet Center** — in Mesa: 1303 South Longmore, Suite 5, Mesa 85202 · (480) 610-6727. Listed under: Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Mesa: 67 W Broadway Rd, Mesa 85210. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Mesa: 424 W Broadway Rd, Mesa 85210. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **MVRC Event Calendar — Mesa Veterans Resource Center** — in Mesa: 165 N Centennial Way, Suite 101, Mesa 85201 · (480) 834-2105. Listed under: Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — in Mesa: 1255 W. Baseline Road, #138, Mesa 85202 · (480) 820-5422. Listed under: Medication-assisted treatment, Wellness.
+- **Outreach and Social Services Program — Aster Aging, Inc.** — in Mesa: 247 N. Macdonald St., Mesa 85201 · (480) 962-5612. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management, Wellness.
+- **Outreach and Social Services Program — Aster Aging, Inc.** — in Mesa: 7550 E. Adobe St., Mesa 85207 · (480) 218-2221. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — in Mesa: 554 S. Bellview, Room A, Mesa 85204 · (480) 461-1711. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Peer Support Services — Community Medical Services** — in Mesa: 6116 E Arbor Ave, Suite 104, Mesa 85206 · (480) 499-4599. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Mesa: 2940 E. Main Street, Mesa 85213 · (480) 977-1500. Listed under: Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 358 E. Javelina Ave., Suite 102, Mesa 85210 · (480) 507-3180. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 554 S. Bellview, Room A, Mesa 85204 · (480) 461-1711. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 1012 S. Stapley Dr., Bldg. 5, Suite 117, Mesa 85204 · (480) 768-6022. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Mesa: 560 S. Bellview, Rooms B & C, Mesa 85204 · (480) 962-7711. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Mesa: 6116 E Arbor Ave, Suite 104, Mesa 85206 · (480) 499-4599. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Mesa: 2940 E. Main Street, Mesa 85213 · (480) 977-1500. Listed under: Medication-assisted treatment, Wellness.
+- **Relieving Hunger — Paz de Cristo** — in Mesa: 424 W. Broadway Rd., Mesa 85210 · (480) 464-2370. Listed under: Wellness.
+- **Safe at Home Community of Care — Aster Aging, Inc.** — in Mesa: 247 N. Macdonald St., Mesa 85201 · (480) 962-5612. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Safe at Home Community of Care — Aster Aging, Inc.** — in Mesa: 7550 E. Adobe St., Mesa 85207 · (480) 218-2221. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Serious Mental Illness (SMI) — Community Bridges, Inc.** — in Mesa: 460 N. Mesa Dr., Ste. 201, Mesa 85202 · (480) 838-5550. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness, General health issues, Chronic disease.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Mesa: 49 W. Broadway Rd., Mesa 85210 · (602) 919-1658. Listed under: General health issues, Wellness.
+- **SVDP-St. Anne’s Medical Equipment Loan Closet — St Vincent de Paul of Phoenix** — in Mesa: 2352 W. Main St., Mesa 85201 · (480) 644-0887. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Mesa: 241 E. 6th Street, Mesa 85201 · (480) 962-9103. Listed under: Wellness.
+- **The Salvation Army Apache Junction Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Mesa: 241 E. 6th Street, Mesa 85201 · (480) 962-9103. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Mesa: 241 East 6th Street, Mesa 85201 · (480) 962-9103. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Mesa: 241 East 6th Street, Mesa 85201 · (480) 962-9103. Listed under: Wellness.
+- **The Salvation Army Mesa Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Mesa: 241 E. 6th Street, Mesa 85201 · (480) 962-9103. Listed under: Wellness.
+- **The Salvation Army Mesa Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Mesa: 255 E. 6th Street, Mesa 85201 · (480) 649-9117. Listed under: Wellness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Mesa: 255 E. 6th St., Mesa 85201 · (480) 649-9117. Listed under: Aging health issues, Wellness.
+- **The ‘Bridge’ Emergency Shelter For Men — Community Bridges, Inc.** — in Mesa: 554 S. Bellview Rd., Room B, Mesa 85204 · (480) 649-1141. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Therapy services for children — Fusion Care Group** — in Mesa: 7254 E Southern Ave, Mesa 85209 · (888) 688-0248. Listed under: Wellness.
+- **Therapy services: in-person and virtual visits — Fusion Care Group** — in Mesa: 7254 E Southern Ave, Mesa 85209 · (888) 688-0248. Listed under: Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Mesa: 1807 S. Sunview, Mesa 85206 · (480) 649-9622. Listed under: Wellness.
+- **Veterans Services — Intensive Treatment Systems** — in Mesa: 340 W University Dr., #19, Mesa 85201 · (855) 245-6350. Listed under: Medication-assisted treatment, Wellness.
+- **Wellness Ready Nutrition** — in Mesa: 8435 E Baseline Rd, Mesa 85209 · (480) 848-5117. Listed under: Wellness.
+- **Wellness Ready PT Consult** — in Mesa: 8435 E Baseline Rd, Mesa 85209 · (480) 848-5117. Listed under: Wellness.
+- **Wellness Ready Training Session** — in Mesa: 8435 E Baseline Rd, Mesa 85209 · (480) 848-5117. Listed under: Wellness.
+- **Women's Health - Addiction Treatment — Intensive Treatment Systems** — in Mesa: 340 W University Dr., #19, Mesa 85201 · (855) 245-6350. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Wellness.
+
+## About this page
+
+This page lists programs with an address in Mesa. Programs based elsewhere that serve Mesa are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

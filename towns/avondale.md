@@ -1,6 +1,30 @@
 # Be Connected resources in Avondale, Arizona
 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Avondale: 3000 N. Dysart Road, Avondale 85392 · (480) 784-0590. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Avondale: 3000 N. Dysart Road, Avondale 85392 · (480) 784-0590. Listed under: Other.
+- **Avondale - AmeriCorps Volunteers — City of Avondale** — in Avondale: 11465 Civic Center Dr, Avondale 85323 · (623) 333-1000. 
+- **Avondale Community Action Program — City of Avondale** — in Avondale: 995 E. Riley Drive, Avondale 85323 · (623) 333-2703. Listed under: Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **AZ Complete Health Avondale Resource Center — Avondale Neighborhood & Family Services Department** — in Avondale: 995 E Riley Dr, Avondale 85323 · (623) 333-2703. Listed under: Finding housing, Homelessness, Eviction prevention.
+- **Caregiver Apprenticeship program — Careworks AZ** — in Avondale: 295 E Van Buren St, Avondale 85323 · (602) 603-8200. 
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 109, Avondale 85323 · (623) 907-6520. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 105, Avondale 85323 · (623) 907-6520. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing, General mental health services, Alcohol.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 109, Avondale 85323 · (623) 907-6520. Listed under: Detox, Inpatient, Medication-assisted treatment, Transitional housing, Permanent supportive housing, Homelessness, Alzheimers, dementia & cognitive issues, Anger, Anxiety.
+- **Crisis Care Services — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 109, Avondale 85323 · (623) 907-6520. Listed under: Detox, Inpatient, Medication-assisted treatment, Alcohol, Drugs, Prescription medication, Transition & reintegration, Co-occurring disorders (mental health/substance use), Psychosis.
+- **Housing & Community Development — Avondale Neighborhood & Family Services Department** — in Avondale: 11465 Civic Center Dr, Avondale 85323 · (623) 333-2705. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair, Home buying.
+- **Inpatient Addiction Treatment — Copper Springs Behavioral Health** — in Avondale: 10550 W. McDowell Road, Avondale 85392. Listed under: Detox, Inpatient, Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness, Other types of substance use and addiction, Alcohol, Drugs.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 109, Avondale 85323 · (623) 907-6520. Listed under: Detox, Inpatient, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness, Transition & reintegration, Alcohol, Drugs.
+- **Inpatient Mental Health Treatment — Copper Springs Behavioral Health** — in Avondale: 10550 W. McDowell Road, Avondale 85392. Listed under: Inpatient, General mental health services, ADHD, Anxiety, Depression/mood disorders, Co-occurring disorders (mental health/substance use), Mental health wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 107 and 108, Avondale 85323 · (623) 907-6520. Listed under: Detox, Residential treatment, Medication-assisted treatment, General mental health services, Alcohol, Drugs, Co-occurring disorders (mental health/substance use), Transition & reintegration, Depression/mood disorders.
+- **Peer Support — Community Bridges, Inc.** — in Avondale: 824 N. 99th Ave., Suite 107 and 108, Avondale 85323 · (623) 907-6520. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Drugs, Alcohol, Co-occurring disorders (mental health/substance use).
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — in Avondale: 811 East Riley, Suites 1 & 2, Avondale 85323 · (623) 932-9093. Listed under: Residential treatment, General mental health services, Alzheimers, dementia & cognitive issues, Anger, Anxiety, Autism, Chronic diseases.
+- **Revitalization — Avondale Neighborhood & Family Services Department** — in Avondale: 1007 South 3rd Street, Avondale 85323. 
+- **Senior Center & Active Adult Program — Avondale Neighborhood & Family Services Department** — in Avondale: 1007 S. 3rd Street, Avondale 85323 · (623) 333-2741. 
+- **SVDP-St. Anne’s Medical Equipment Loan Closet — St Vincent de Paul of Phoenix** — in Avondale: 1450 N Dysart Rd., Avondale 85323 · (623) 248-5500. 
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Avondale: 11 North 3rd Avenue, Avondale 85323 · (623) 934-0469. Listed under: Homelessness.
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Avondale: 11 North 3rd Avenue, Avondale 85323 · (623) 934-0469. Listed under: Mental health wellness.
+- **Vet Support Center — University of Arizona** — in Avondale: 10695 West Pierce Street, Avondale 85323. 
+- **Youth Services & Community Engagement — Avondale Neighborhood & Family Services Department** — in Avondale: 11465 Civic Center Dr, Avondale 85323 · (623) 333-2705. 
+- **Youth Workforce Program — ARIZONA@WORK Maricopa County** — in Avondale: 124 S. 4th Street, Avondale 85323 · (623) 882-9106. 
 
 ## About this page
 

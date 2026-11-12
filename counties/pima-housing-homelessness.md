@@ -1,13 +1,113 @@
 # Housing & Homelessness in Pima County: Be Connected resources
 
-## Listed as serving Pima County under Housing & Homelessness (2)
+## Listed as serving Pima County under Housing & Homelessness (70)
 
+- **A Safe Place for Women Winter Night Program — Sister Jose Women's Shelter (SJWS)** — serves Pima County · (520) 909-3905 · addresses in Tucson. Listed under: Homelessness.
+- **Addressing Issues — Pima County Development Services** — serves Pima County · (520) 724-9000 · addresses in Tucson. Listed under: Home buying, Home renovation or repair, Finding housing.
+- **Building Permits — Pima County Development Services** — serves Pima County. Listed under: Home renovation or repair, Home buying.
+- **Casa Bonitas 1-2 — COPE Community Services, Inc.** — serves Pima County. Listed under: Finding housing, Homelessness.
+- **Casa Bonitas 3-5 — COPE Community Services, Inc.** — serves Pima County. Listed under: Finding housing, Homelessness, Permanent supportive housing.
+- **Casa Paloma Women's Hospitality Center & Women's Residence — The Primavera Foundation** — serves Pima County · (520) 623-5111 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **Catholic Community Services - Deaf & Residential Services — Catholic Community Services Of Southern Arizona Inc.** — serves Pima County · (520) 792-1906 · addresses in Tucson. Listed under: Finding housing, Permanent supportive housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Pima County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Pima County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Transitional housing, Permanent supportive housing, Homelessness.
+- **Client Services — Community Outreach Program for the Deaf** — serves Pima County · (520) 792-1906 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Permanent supportive housing.
+- **Disaster Relief — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Rapid re-housing, Transitional housing, Emergency shelter.
+- **Diversion Services — HOPE, Incorporated** — serves Pima County · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Transitional housing.
+- **Electric Reconnects — Pima County Development Services** — serves Pima County · (520) 724-9000 · addresses in Tucson. Listed under: Home renovation or repair, Home buying.
+- **Emergency Services — Portable Practical Educational Preparation, Inc.** — serves Pima County · addresses in Tucson. Listed under: Emergency shelter, Eviction prevention.
+- **Endeavors Homeless Veteran Reintegration Program (HVRP)** — serves Pima County · (520) 355-1002 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness.
+- **Financial Education and Asset Building — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Home buying.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Tucson. Listed under: Homelessness, Finding housing, Eviction prevention.
+- **Foreclosure Prevention Resources — Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Foreclosure prevention.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson. Listed under: Affordable housing programs, Eviction prevention, Foreclosure prevention, Finding housing, Emergency shelter, Homelessness.
+- **Habitat Tucson Home Repair Program — Habitat for Humanity Tucson** — serves Pima County. Listed under: Home renovation or repair.
+- **Habitat Tucson Veterans Build — Habitat for Humanity Tucson** — serves Pima County. Listed under: Home renovation or repair, Home buying.
+- **Habitat Tucson Women Build — Habitat for Humanity Tucson** — serves Pima County. Listed under: Home renovation or repair, Home buying.
+- **Health Care and Behavior Plan Management — Community Living Program** — serves Pima County · (520) 770-8562 · addresses in Tucson. Listed under: Permanent supportive housing.
+- **Help Out of Homelessness — Sister Jose Women's Shelter (SJWS)** — serves Pima County · addresses in Tucson. Listed under: Homelessness.
+- **Home Owner Resources — Pima County** — serves Pima County · (520) 724-2646 · addresses in Tucson. Listed under: Affordable housing programs, Eviction prevention, Foreclosure prevention, Home buying.
+- **Home Repair & Adaptation — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Home renovation or repair.
+- **Homeless Intervention & Prevention Drop-In Center — The Primavera Foundation** — serves Pima County · (520) 623-5111 · addresses in Tucson. Listed under: Finding housing, Homelessness, Emergency shelter, Affordable housing programs, Eviction prevention, Rapid re-housing.
+- **Homeless Preference Program Vouchers — COPE Community Services, Inc.** — serves Pima County · addresses in Tucson. Listed under: Finding housing, Homelessness.
+- **Housing Counseling Agencies — Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Home buying, Finding housing, Affordable housing programs, Eviction prevention, Foreclosure prevention.
+- **Housing Counseling — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Foreclosure prevention, Home buying, Finding housing, Affordable housing programs, Homelessness, Emergency shelter.
+- **Housing Options for Older Adults — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Finding housing, Affordable housing programs, Emergency shelter, Permanent supportive housing, Rapid re-housing, Home buying.
+- **Housing program — Community Partnership Care Coordination** — serves Pima County. Listed under: Affordable housing programs, Permanent supportive housing, Finding housing, Homelessness.
+- **HUD-VASH Tucson VA/SAVAHCS — Southern Arizona VA Health Care System** — serves Pima County. Listed under: Affordable housing programs, Homelessness.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson, Willcox. Listed under: Homelessness.
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — serves Pima County · (520) 297-6049 · addresses in Tucson. Listed under: Homelessness, Eviction prevention.
+- **Independent Living Services — Ability360** — serves Pima County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Finding housing, Home renovation or repair.
+- **Information Referral — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing, Eviction prevention.
+- **Job Seeker Resources** — serves Pima County · (520) 872-9095 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention.
+- **Life Works Supportive Housing — COPE Community Services, Inc.** — serves Pima County. Listed under: Finding housing, Affordable housing programs, Homelessness, Permanent supportive housing.
+- **Men's Shelter — The Primavera Foundation** — serves Pima County · (520) 623-4300 · addresses in Tucson. Listed under: Homelessness.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Emergency shelter, Eviction prevention, Home renovation or repair.
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. Listed under: Emergency shelter, Transitional housing.
+- **Migration and Refugee Services — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. Listed under: Finding housing.
+- **Navigation Services — HOPE, Incorporated** — serves Pima County · addresses in Tucson. Listed under: Finding housing.
+- **Neighbors Care Alliance (NCA) — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Home renovation or repair.
+- **Online Resource Directory — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Homelessness.
+- **Own a New Home with Habitat Tucson — Habitat for Humanity Tucson** — serves Pima County. Listed under: Home buying.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Emergency shelter, Eviction prevention.
+- **Patient Services — Arizona SonShine** — serves Pima County. Listed under: Homelessness.
+- **Permanent Supportive Housing — Esperanza En Escalante** — serves Pima County · (520) 571-8294 · addresses in Tucson. Listed under: Affordable housing programs, Homelessness, Permanent supportive housing.
+- **Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **Project Action for Veterans — The Primavera Foundation** — serves Pima County · (520) 308-3093 · addresses in Tucson. Listed under: Homelessness, Finding housing, Affordable housing programs, Transitional housing.
+- **Rally Point Navigator Program — La Frontera Arizona** — serves Pima County. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Eviction prevention.
 - **Rapid Re-Housing — The Primavera Foundation** — serves Pima County · addresses in Tucson. Listed under: Finding housing, Homelessness, Emergency shelter, Rapid re-housing.
+- **Residential Programs — Community Living Program** — serves Pima County. Listed under: Permanent supportive housing.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Eviction prevention, Home renovation or repair.
+- **SALA - Veterans Hope & Justice Project — Southern Arizona Legal Aid - SALA** — serves Pima County · (520) 623-9461 · addresses in Casa Grande, Fort Apache, Sacaton, Show Low, Sierra Vista, Tucson. Listed under: Eviction prevention, Homelessness, Foreclosure prevention.
+- **Senior Housing for low-income elders — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Affordable housing programs.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. Listed under: Homelessness, Emergency shelter, Transitional housing, Finding housing, Affordable housing programs, Eviction prevention.
+- **Sisters Helping Sisters Day Program — Sister Jose Women's Shelter (SJWS)** — serves Pima County · addresses in Tucson. Listed under: Homelessness.
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — serves Pima County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: Eviction prevention.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — serves Pima County · (520) 628-7837 · addresses in Tucson. Listed under: Finding housing, Homelessness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — serves Pima County · (623) 934-0469 · addresses in Apache Junction, Casa Grande, Chandler, Glendale, Mesa, Phoenix. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — serves Pima County · (520) 795-9671 · addresses in Tucson. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **The Salvation Army Tucson Social Services** — serves Pima County · (520) 795-9671 · addresses in Tucson. Listed under: Homelessness, Finding housing, Affordable housing programs, Eviction prevention, Foreclosure prevention.
 - **Transitional Housing — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **VA Benefits Assistance — DAV Chapter 4 Tucson** — serves Pima County · (520) 791-9067 · addresses in Tucson. Listed under: Finding housing.
+- **VA Transitional Housing — Esperanza En Escalante** — serves Pima County · (520) 571-8294 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Rapid re-housing.
+- **Veteran Services — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Veterans Support Services — American Legion-Oro Valley Post 132** — serves Pima County. Listed under: Emergency shelter, Homelessness, Affordable housing programs, Transitional housing.
 
-## Statewide programs under Housing & Homelessness, which also serve Pima County (1)
+## Statewide programs under Housing & Homelessness, which also serve Pima County (33)
 
+- **5 Ways to Prepare for Monsoon Season in Arizona — Salt River Project (SRP)** — statewide. Listed under: Emergency shelter, Eviction prevention.
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. Listed under: Eviction prevention.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention, Home renovation or repair, Home buying.
+- **AHCCCS Housing Program — HOM, Inc.** — statewide · (602) 296-6594. Listed under: Finding housing, Homelessness, Permanent supportive housing.
+- **Air Conditioning and Home Repairs — Habitat for Humanity - Central Arizona** — statewide · (602) 232-1089. Listed under: Home renovation or repair.
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Affordable housing programs, Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention, Rapid re-housing.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention, Home renovation or repair, Finding housing.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Axiom Care at Victory Place - General Resources** — statewide · (602) 825-2592. Listed under: Detox, Residential treatment, Homelessness, Transitional housing.
+- **AZEvictionHelp — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Eviction prevention.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Emergency shelter.
+- **BC Support Line — Be Connected** — statewide. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Community Action Agencies list in Arizona — Wildfire AZ** — statewide. Listed under: Eviction prevention.
+- **Corps Community Centers Phoenix Maryvale — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide. Listed under: Affordable housing programs, Homelessness, Emergency shelter.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Finding housing, Homelessness, Emergency shelter, Rapid re-housing.
+- **Free Arizona ID for Veterans — Homeless ID Project** — statewide · (602) 223-3427. Listed under: Homelessness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Homelessness, Emergency shelter.
 - **Homeless Services program — DES Division of Aging and Adult Services** — statewide · (602) 595-8700. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **Housing Stability Court Navigator Program — Arizona Supreme Court** — statewide · (928) 817-4174. Listed under: Eviction prevention.
+- **Mother's Grace** — statewide. Listed under: Eviction prevention.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: Finding housing, Homelessness.
+- **People’s Information Guide — Wildfire AZ** — statewide. Listed under: Eviction prevention, Emergency shelter.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Finding housing, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair, Home buying.
+- **Public Information Office — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Emergency shelter.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. Listed under: Homelessness, Emergency shelter.
+- **SSI/SSDI Outreach, Access, and Recovery (SOAR) — Substance Abuse and Mental Health Services Administration (SAMHSA)** — statewide. Listed under: Homelessness.
+- **Survivor Emergency Relief Fund (SERFund) — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Homelessness, Finding housing, Rapid re-housing.
+- **SVDP Home Visits — St Vincent de Paul of Phoenix** — statewide. Listed under: Eviction prevention.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Eviction prevention.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Homelessness, Eviction prevention.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention.
+- **Wildfire Safety — The American Red Cross** — statewide. Listed under: Emergency shelter, Homelessness.
 
 ## About this page
 

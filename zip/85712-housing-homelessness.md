@@ -1,0 +1,51 @@
+# Be Connected Housing & Homelessness resources within 5 miles of 85712 (ZIP code 85712)
+
+## Within 5 miles of ZIP code 85712 (20)
+
+- **Rapid Re-Housing — The Primavera Foundation** — about 1.3 miles from ZIP code 85712. 2590 N. Alvernon Way, Tucson 85713. Listed under: Finding housing, Homelessness, Emergency shelter, Rapid re-housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — about 1.7 miles from ZIP code 85712. 2950 N. Dodge Blvd., Suite A, Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **Independent Living Services — Ability360** — about 1.9 miles from ZIP code 85712. 1001 N. Alvernon Way, Tucson 85711 · (520) 449-8375. Listed under: Finding housing, Home renovation or repair.
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — about 2.1 miles from ZIP code 85712. 122 North Craycroft Road, Tucson 85711 · (520) 297-6049. Listed under: Homelessness, Eviction prevention.
+- **Mental Health Outpatient Services — Family Involvement Center** — about 2.5 miles from ZIP code 85712. 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Emergency shelter, Eviction prevention, Home renovation or repair.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — about 2.5 miles from ZIP code 85712. 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Emergency shelter, Eviction prevention.
+- **Diversion Services — HOPE, Incorporated** — about 2.5 miles from ZIP code 85712. 1200 N. Country Club, Tucson 85716. Listed under: Finding housing, Affordable housing programs, Transitional housing.
+- **Navigation Services — HOPE, Incorporated** — about 2.5 miles from ZIP code 85712. 1200 N. Country Club, Tucson 85716. Listed under: Finding housing.
+- **AHCCCS Housing Program — HOM, Inc.** — about 3.0 miles from ZIP code 85712. 880 S Craycroft Rd, Tucson 85711 · (520) 534-2941. Listed under: Finding housing, Homelessness, Permanent supportive housing.
+- **Disaster Relief — American Red Cross - Southern Arizona** — about 3.3 miles from ZIP code 85712. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: Rapid re-housing, Transitional housing, Emergency shelter.
+- **Information Referral — American Red Cross - Southern Arizona** — about 3.3 miles from ZIP code 85712. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing, Eviction prevention.
+- **Veteran Services — American Red Cross - Southern Arizona** — about 3.3 miles from ZIP code 85712. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Endeavors Homeless Veteran Reintegration Program (HVRP)** — about 3.4 miles from ZIP code 85712. 2730 E Broadway Blvd, Tucson 85716 · (520) 355-1002. Listed under: Finding housing, Affordable housing programs, Homelessness.
+- **Job Seeker Resources** — about 3.6 miles from ZIP code 85712. 1455 South Alvernon Way, Tucson 85711 · (520) 872-9095. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — about 3.6 miles from ZIP code 85712. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Eviction prevention, Home renovation or repair.
+- **SALA - Veterans Hope & Justice Project — Southern Arizona Legal Aid - SALA** — about 3.6 miles from ZIP code 85712. 2343 East Broadway Blvd, Suite 200, Tucson 85719 · (520) 623-9461. Listed under: Eviction prevention, Homelessness, Foreclosure prevention.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — about 5.0 miles from ZIP code 85712. 218 E. Prince Road, Tucson 85705 · (520) 888-1299. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — about 5.0 miles from ZIP code 85712. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Affordable housing programs, Eviction prevention, Foreclosure prevention, Finding housing, Emergency shelter, Homelessness.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — about 5.0 miles from ZIP code 85712. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Homelessness, Finding housing, Eviction prevention.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — about 5.0 miles from ZIP code 85712. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Homelessness.
+
+## The next nearest, between 5 and 25 miles of ZIP code 85712 (20 of 33 shown)
+
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — about 5.1 miles from ZIP code 85712. 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Transitional housing, Permanent supportive housing, Homelessness.
+- **Sisters Helping Sisters Day Program — Sister Jose Women's Shelter (SJWS)** — about 5.1 miles from ZIP code 85712. 1050 S Park Ave, Tucson 85719. Listed under: Homelessness.
+- **A Safe Place for Women Winter Night Program — Sister Jose Women's Shelter (SJWS)** — about 5.1 miles from ZIP code 85712. 1050 S Park Ave, Tucson 85719 · (520) 909-3905. Listed under: Homelessness.
+- **Help Out of Homelessness — Sister Jose Women's Shelter (SJWS)** — about 5.1 miles from ZIP code 85712. 1050 S Park Ave, Tucson 85719. Listed under: Homelessness.
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — about 5.3 miles from ZIP code 85712. 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. Listed under: Emergency shelter, Transitional housing.
+- **Migration and Refugee Services — Catholic Community Services - Tucson** — about 5.3 miles from ZIP code 85712. 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. Listed under: Finding housing.
+- **Catholic Community Services - Deaf & Residential Services — Catholic Community Services Of Southern Arizona Inc.** — about 5.3 miles from ZIP code 85712. 268 West Adams, Tucson 85705 · (520) 792-1906. Listed under: Finding housing, Permanent supportive housing.
+- **Client Services — Community Outreach Program for the Deaf** — about 5.3 miles from ZIP code 85712. 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: Finding housing, Affordable housing programs, Homelessness, Permanent supportive housing.
+- **Health Care and Behavior Plan Management — Community Living Program** — about 5.3 miles from ZIP code 85712. 268 West Adams, Tucson 85705 · (520) 770-8562. Listed under: Permanent supportive housing.
+- **Electric Reconnects — Pima County Development Services** — about 5.4 miles from ZIP code 85712. 201 N. Stone Ave., Tucson 85701 · (520) 724-9000. Listed under: Home renovation or repair, Home buying.
+- **Addressing Issues — Pima County Development Services** — about 5.4 miles from ZIP code 85712. 201 N. Stone Ave., Tucson 85701 · (520) 724-9000. Listed under: Home buying, Home renovation or repair, Finding housing.
+- **VA Transitional Housing — Esperanza En Escalante** — about 5.4 miles from ZIP code 85712. 3700 S Calle Polar, Tucson 85730 · (520) 571-8294. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Rapid re-housing.
+- **Permanent Supportive Housing — Esperanza En Escalante** — about 5.4 miles from ZIP code 85712. 3700 S Calle Polar, Tucson 85730 · (520) 571-8294. Listed under: Affordable housing programs, Homelessness, Permanent supportive housing.
+- **Homeless Preference Program Vouchers — COPE Community Services, Inc.** — about 5.4 miles from ZIP code 85712. 82 South Stone, Tucson 85701. Listed under: Finding housing, Homelessness.
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — about 5.5 miles from ZIP code 85712. Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **The Salvation Army Tucson Social Services** — about 5.5 miles from ZIP code 85712. Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Homelessness, Finding housing, Affordable housing programs, Eviction prevention, Foreclosure prevention.
+- **Homeless Intervention & Prevention Drop-In Center — The Primavera Foundation** — about 5.5 miles from ZIP code 85712. 702 S. 6th Ave., Tucson 85701 · (520) 623-5111. Listed under: Finding housing, Homelessness, Emergency shelter, Affordable housing programs, Eviction prevention, Rapid re-housing.
+- **Casa Paloma Women's Hospitality Center & Women's Residence — The Primavera Foundation** — about 5.5 miles from ZIP code 85712. 702 S. 6th Ave., Tucson 85701 · (520) 623-5111. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — about 5.6 miles from ZIP code 85712. 829 South 6th Avenue, Tucson 85701 · (520) 628-7837. Listed under: Finding housing, Homelessness.
+- **Housing Counseling — Catholic Community Services - Pio Decimo Center** — about 5.7 miles from ZIP code 85712. 848 S. 7th Avenue, Tucson 85701 · (520) 622-2801. Listed under: Foreclosure prevention, Home buying, Finding housing, Affordable housing programs, Homelessness, Emergency shelter.
+
+## About this page
+
+This page lists what is near ZIP code 85712, and only that ZIP code. Distances run from the middle of ZIP code 85712 to the program's nearest address, so near the edge of a ZIP code they can be off by a mile or two. They apply only to a question that names ZIP code 85712. A program with several addresses is listed once, at its nearest. 651 programs in this directory have no street address and are not on this page. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

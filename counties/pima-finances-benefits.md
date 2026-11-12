@@ -1,8 +1,223 @@
 # Finances & Benefits in Pima County: Be Connected resources
 
-## Listed as serving Pima County under Finances & Benefits (1)
+## Listed as serving Pima County under Finances & Benefits (119)
 
+- **Abuse & Exploitation — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262. Listed under: Benefits, Financial planning, Taxes, Eviction prevention.
+- **Admissions Office - Tucson VA Medical Center — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. Listed under: Benefits.
+- **Aging Mastery Program — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 305-3409. Listed under: Benefits, Financial planning, Retirement.
+- **Ajo Gardeners Network (AGN) — Ajo Center for Sustainable Agriculture** — serves Pima County · (520) 405-4872 · addresses in Ajo. Listed under: Food, Benefits.
+- **Arivaca Community Garden — Portable Practical Educational Preparation, Inc.** — serves Pima County · (520) 622-3553. Listed under: Food.
+- **Arizona National Guard Family Programs — Arizona Army National Guard** — serves Pima County · (800) 233-7758 · addresses in Phoenix. Listed under: Budgeting, Food, Financial planning.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Pima County · addresses in Phoenix, Surprise. Listed under: Food, Budgeting.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — serves Pima County · (877) 568-8468 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Benefits.
+- **Basic Services: Food, Clothing and Housewares — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Food.
+- **Budgeting Assistance - PCOA — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Budgeting, Debt/credit counseling, Benefits, Eviction prevention, Utilities, Taxes.
+- **Building Futures for Families — Arizona Youth Partnership** — serves Pima County. Listed under: Budgeting.
+- **Caregiver Training — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Caregiving Services — Billet Health** — serves Pima County · (833) 224-5538. Listed under: Benefits, Food.
+- **Casa Paloma Women's Hospitality Center & Women's Residence — The Primavera Foundation** — serves Pima County · (520) 623-5111 · addresses in Tucson. Listed under: Benefits, Rapid rehousing, Food.
+- **Catholic Community Services - Deaf & Residential Services — Catholic Community Services Of Southern Arizona Inc.** — serves Pima County · (520) 792-1906 · addresses in Tucson. Listed under: Benefits.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Pima County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Benefits, Budgeting, Financial planning.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Pima County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Benefits.
+- **Child Care Food Program (CACFP) — Child & Family Resources** — serves Pima County. Listed under: Benefits.
+- **Client Services — Community Outreach Program for the Deaf** — serves Pima County · (520) 792-1906 · addresses in Tucson. Listed under: Benefits, Financial planning.
+- **Community Living Program — Catholic Community Services - Deaf & Residential Services** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Benefits.
+- **Comprehensive Counseling and Support Groups — CODAC Health, Recovery, & Wellness, Inc.** — serves Pima County · addresses in Tucson. Listed under: Financial planning, Budgeting.
+- **Disaster Relief — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Food, Rapid rehousing.
+- **Diversion Services — HOPE, Incorporated** — serves Pima County · addresses in Tucson. Listed under: Food, Utilities, Bus passes, Eviction prevention.
+- **DreamBuilder: The Women’s Business Creator** — serves Pima County · (602) 601-7200 · addresses in Phoenix, Prescott, Tucson. Listed under: Benefits.
+- **Emergency Alert Systems — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits.
+- **Emergency Services — Portable Practical Educational Preparation, Inc.** — serves Pima County · addresses in Tucson. Listed under: Eviction prevention, Benefits, Food, Utilities.
+- **Employer Services & Resources** — serves Pima County · (520) 872-9095 · addresses in Tucson. Listed under: Benefits.
+- **Farmworker Law Program — Community Legal Services** — serves Pima County. Listed under: Benefits.
+- **Financial Education and Asset Building — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Budgeting, Debt/credit counseling, Financial planning.
+- **Food Assistance Development Programs in Southern Arizona — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Tucson. Listed under: Food, Budgeting.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Tucson. Listed under: Food, Eviction prevention, Benefits.
+- **Foreclosure Prevention Resources — Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Financial planning.
+- **Fresh Produce for the Public — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson, Willcox. Listed under: Food.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson. Listed under: Eviction prevention, Food, Benefits.
+- **Health Care and Behavior Plan Management — Community Living Program** — serves Pima County · (520) 770-8562 · addresses in Tucson. Listed under: Benefits.
+- **Health Promotion & Gardening — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Tucson. Listed under: Food.
+- **Help at Home — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits.
+- **Home Care Services — Ability360** — serves Pima County. Listed under: Benefits.
+- **Home Health — Billet Health** — serves Pima County · (833) 224-5538. Listed under: Benefits, Food.
+- **Home Owner Resources — Pima County** — serves Pima County · (520) 724-2646 · addresses in Tucson. Listed under: Budgeting, Eviction prevention, Financial planning, Debt/credit counseling.
+- **Home Repair & Adaptation — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits.
+- **Home-Delivered Meals — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Food.
+- **Homeless Intervention & Prevention Drop-In Center — The Primavera Foundation** — serves Pima County · (520) 623-5111 · addresses in Tucson. Listed under: Benefits, Rapid rehousing, Food.
+- **Hospice Care Services — Billet Health** — serves Pima County · (833) 224-5538. Listed under: Benefits.
+- **Housing Counseling Agencies — Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Financial planning, Budgeting, Debt/credit counseling, Eviction prevention.
+- **Housing Counseling — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Financial planning, Rapid rehousing, Eviction prevention.
+- **Housing Options for Older Adults — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits, Rapid rehousing.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson, Willcox. Listed under: Benefits, Food.
+- **ICS - Caregiving & Senior Services — Interfaith Community Services** — serves Pima County. Listed under: Food.
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — serves Pima County · (520) 297-6049 · addresses in Tucson. Listed under: Benefits, Food, Utilities, Eviction prevention.
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — serves Pima County · (520) 297-6049 · addresses in Tucson. Listed under: Budgeting, Debt/credit counseling, Financial planning, Taxes.
+- **Independent Living Services — Ability360** — serves Pima County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Benefits.
+- **Information & Referral Helpline — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Information Referral — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Budgeting, Debt/credit counseling, Benefits, Eviction prevention, Food, Utilities.
+- **Job Seeker Resources** — serves Pima County · (520) 872-9095 · addresses in Tucson. Listed under: Benefits, Eviction prevention, Food, Utilities.
+- **Long-Term Care - ALTCS Workshop — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Meals & Nutrition for Older Adults — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Food.
+- **Medicare — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Mental Health Intensive Case Management (MHICM) — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. Listed under: Medication-assisted treatment, Budgeting.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Benefits, Eviction prevention, Food, Utilities.
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. Listed under: Food, Utilities, Car repair, Bus passes, Direct transportation assistance (e.g. provides transport to appointments), Financial planning.
+- **Migration and Refugee Services — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. Listed under: Budgeting, Utilities, Food, Bus passes, Direct transportation assistance (e.g. provides transport to appointments), Financial planning.
+- **Mothers Caring About Self — CODAC Health, Recovery, & Wellness, Inc.** — serves Pima County · (520) 202-1716 · addresses in Tucson. Listed under: Intensive outpatient (IOP), Food.
+- **Navy and Marine Corps Reserve Support — Navy Operational Support Center (NOSC) Tucson** — serves Pima County · (520) 228-6289 · addresses in Tucson. Listed under: Benefits.
+- **Neighbors Care Alliance (NCA) — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Direct transportation assistance (e.g. provides transport to appointments), Food.
+- **One-on-One Caregiver Consultation — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Online Resource Directory — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits, Financial planning.
+- **Outreach Services — Desert Senita Community Health Center (DSCHC)** — serves Pima County · (520) 387-5651 · addresses in Ajo, Arizona City. Listed under: Food, Benefits.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Benefits, Food, Utilities, Eviction prevention.
+- **Patient Services — Arizona SonShine** — serves Pima County. Listed under: Benefits, Food, Utilities.
+- **PCOA Katie Dusenberry Healthy Aging Center — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits.
+- **Permanent Supportive Housing — Esperanza En Escalante** — serves Pima County · (520) 571-8294 · addresses in Tucson. Listed under: Benefits.
+- **Pima County Housing Center (El Blanco)** — serves Pima County · (520) 724-2460 · addresses in Tucson. Listed under: Budgeting, Eviction prevention, Financial planning.
+- **Pima County Jail Services — Pima County Sheriff's Department** — serves Pima County · (520) 351-8111 · addresses in Ajo, Tucson. Listed under: Benefits.
+- **PPEP Elderly Services — Portable Practical Educational Preparation, Inc.** — serves Pima County · (520) 387-3818 · addresses in Ajo. Listed under: Eviction prevention, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **Produce on Wheels With-Out Waste - P.O.W. W.O.W. — Borderlands Produce Rescue** — serves Pima County. Listed under: Food.
+- **Project Action for Veterans — The Primavera Foundation** — serves Pima County · (520) 308-3093 · addresses in Tucson. Listed under: Financial planning.
+- **Rally Point Navigator Program — La Frontera Arizona** — serves Pima County. Listed under: Benefits.
+- **Residential Programs — Community Living Program** — serves Pima County. Listed under: Benefits.
+- **Respite Care — MIKID** — serves Pima County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. Listed under: Benefits, Eviction prevention, Food, Utilities, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **SALA - Veterans Hope & Justice Project — Southern Arizona Legal Aid - SALA** — serves Pima County · (520) 623-9461 · addresses in Casa Grande, Fort Apache, Sacaton, Show Low, Sierra Vista, Tucson. Listed under: Benefits, Eviction prevention, Utilities.
+- **SAVAHCS Veterans Commemorative Plaza Memorial Bricks — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. Listed under: Benefits.
+- **Senior Companion Program — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits.
+- **Senior Nutrition – Home-Delivered Meals - CCS - Tucson — Catholic Community Services - Tucson** — serves Pima County. Listed under: Food.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. Listed under: Benefits, Eviction prevention, Rapid rehousing.
+- **Serving Those Who Have Served — Southwest Truck Driver Training, Inc.** — serves Pima County · (833) 234-3848 · addresses in Phoenix. Listed under: Benefits.
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — serves Pima County · (520) 766-3663 · addresses in Tucson, Willcox. Listed under: Benefits, Food.
+- **Sun Tran Regional Transit Systems — City of Tucson** — serves Pima County · (520) 623-4301 · addresses in Tucson. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **Sun Tran — City of Tucson** — serves Pima County · (520) 623-4301 · addresses in Tucson. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — serves Pima County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: Food, Utilities.
+- **SVDP Thrift Stores — St. Vincent de Paul of Southern Arizona** — serves Pima County · (520) 622-2821 · addresses in Benson, Casa Grande, Douglas, Green Valley, Safford, Sierra Vista. Listed under: Budgeting.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — serves Pima County · (520) 628-7837 · addresses in Tucson. Listed under: Food, Utilities, Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Tax Services — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Taxes.
+- **The Salvation Army Amphi Corps Community Center — The Salvation Army Tucson** — serves Pima County · (520) 888-1299 · addresses in Tucson. Listed under: Food, Benefits.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — serves Pima County · (623) 934-0469 · addresses in Apache Junction, Casa Grande, Chandler, Glendale, Mesa, Phoenix. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Family Thrift Stores Phoenix Metro — The Salvation Army Phoenix Metro** — serves Pima County · (602) 560-0021 · addresses in Casa Grande, Chandler, Peoria, Phoenix, Tempe, Tucson. Listed under: Budgeting, Benefits.
+- **The Salvation Army Green Valley Service Center — The Salvation Army Tucson** — serves Pima County · (520) 625-3888 · addresses in Green Valley. Listed under: Food, Utilities, Retirement, Benefits.
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — serves Pima County · (520) 795-9671 · addresses in Tucson. Listed under: Benefits, Rapid rehousing.
+- **The Salvation Army Tucson Family Thrift Stores** — serves Pima County · (520) 722-6525 · addresses in Tucson. Listed under: Budgeting.
+- **The Salvation Army Tucson Social Services** — serves Pima County · (520) 795-9671 · addresses in Tucson. Listed under: Benefits, Eviction prevention, Food, Utilities.
+- **The Salvation Army Tucson South Corps Community Center** — serves Pima County · (520) 620-1076 · addresses in Tucson. Listed under: Food, Benefits.
+- **Time Away (Respite) for Caregivers — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits.
+- **Transition Age Youth Program — MIKID** — serves Pima County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
 - **Transitional Housing — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. Listed under: Eviction prevention, Rapid rehousing, Financial planning.
+- **Transportation Options — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Bus passes, Direct transportation assistance (e.g. provides transport to appointments), Car repair, Benefits.
+- **Tucson Vet Center** — serves Pima County · (520) 882-0333 · addresses in Tucson. Listed under: Benefits.
+- **UA Campus Pantry — University of Arizona** — serves Pima County · addresses in Tucson. Listed under: Food.
+- **Utility Discounts — Pima Council on Aging (PCOA) Region II** — serves Pima County. Listed under: Benefits, Utilities.
+- **VA Benefits Assistance — DAV Chapter 4 Tucson** — serves Pima County · (520) 791-9067 · addresses in Tucson. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **VA Transitional Housing — Esperanza En Escalante** — serves Pima County · (520) 571-8294 · addresses in Tucson. Listed under: Benefits.
+- **Veggies R' Us - Produce Distribution — Borderlands Produce Rescue** — serves Pima County · (520) 287-2627 · addresses in Nogales. Listed under: Food.
+- **Veteran Services — American Red Cross - Southern Arizona** — serves Pima County · (520) 318-6740 · addresses in Tucson. Listed under: Benefits, Food, Eviction prevention, Rapid rehousing, Utilities.
+- **Veterans Affairs Office — Tohono O’odham Nation** — serves Pima County · addresses in Sells. Listed under: Benefits.
+- **Veterans Exact Thanks (VETs): Non-Perishable Donation Drive — Borderlands Produce Rescue** — serves Pima County. Listed under: Food.
+- **Veterans Resource Center — Prescott College** — serves Pima County · (220) 863-0187 · addresses in Prescott, Tucson. Listed under: Benefits.
+- **Veterans Support Services — American Legion-Oro Valley Post 132** — serves Pima County. Listed under: Utilities, Food, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **VICaP Neighbor Services — Volunteer Interfaith Caregiver Program (VICaP) Sierra Vista** — serves Pima County. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **Wellness Program — MIKID** — serves Pima County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
+
+## Statewide programs under Finances & Benefits, which also serve Pima County (94)
+
+- **5 Ways to Prepare for Monsoon Season in Arizona — Salt River Project (SRP)** — statewide. Listed under: Utilities, Eviction prevention.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Benefits, Food.
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. Listed under: Eviction prevention, Benefits.
+- **ADOT Veteran License Designation — Arizona Department of Transportation (ADOT)** — statewide. Listed under: Benefits.
+- **ADVS Military Family Relief Fund (MFRF) — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Eviction prevention, Rapid rehousing, Food, Utilities.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Car repair.
+- **ADVS Veterans’ Memorial Cemeteries — Arizona Department of Veterans' Services (ADVS)** — statewide · (520) 458-7144. Listed under: Benefits.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **American Legion AZ - Veterans Benefits Assistance — The American Legion Department of Arizona** — statewide · (602) 627-3281. Listed under: Benefits.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Benefits.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Benefits.
+- **Arizona County Election Officials Contact Information — Arizona Department of State** — statewide · (877) 843-8683. Listed under: Benefits.
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Benefits, Eviction prevention, Food, Utilities, Rapid rehousing.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Benefits.
+- **Arizona Family Caregiver Reimbursement Program (FCRP) — Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Benefits.
+- **Arizona Indian Education Association — Inter Tribal Council of Arizona (ITCA)** — statewide · (602) 258-4822. Listed under: Benefits.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Benefits, Financial planning.
+- **Arizona Military Funeral Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Benefits.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Benefits.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Benefits.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **Arizona Self Help — Wildfire AZ** — statewide · (602) 604-0640. Listed under: Benefits, Food, Utilities.
+- **Arizona Veterans Hall of Fame Nomination — Unified Arizona Veterans** — statewide. Listed under: Benefits.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Benefits, Eviction prevention, Food, Rapid rehousing.
+- **Arizona/New Mexico Interpreting SuperCenter — Catholic Community Services - Deaf & Residential Services** — statewide. Listed under: Benefits.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Benefits.
+- **AZ MVD Now - MVD Expands At-Home Services and Restricts Office Visits — Arizona Department of Transportation (ADOT)** — statewide. Listed under: Benefits.
+- **AZEvictionHelp — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Eviction prevention.
+- **AZGeo Data Hub** — statewide. Listed under: Utilities.
+- **AZPVA Veteran Benefits Service Office — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Benefits.
+- **AZVETS Virtual Education Series — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Benefits.
+- **Bankruptcy 101 Educational Videos — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Budgeting, Debt/credit counseling.
+- **BC Support Line — Be Connected** — statewide. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Car repair.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Benefits.
+- **Beneficiary Travel (BT) program — Veterans Health Administration (VHA)** — statewide · (928) 445-4860. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: Food.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Utilities, Food, Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Benefits.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Benefits.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Benefits.
+- **Cash Assistance — Arizona Department of Economic Security (DES) - AVSE** — statewide. Listed under: Food, Utilities, Benefits.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Benefits, Food.
+- **Community Action Agencies list in Arizona — Wildfire AZ** — statewide. Listed under: Benefits, Food, Utilities.
+- **Copper Star (Bucky O’Neill) Award Nomination — Unified Arizona Veterans** — statewide. Listed under: Benefits.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Rapid rehousing, Food.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Food, Benefits.
+- **Energy and Utility Assistance — Wildfire AZ** — statewide. Listed under: Utilities.
+- **Find a Food Bank Near You — Arizona Food Bank Network (AzFBN)** — statewide. Listed under: Food.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: Food.
+- **Government Assistance Eligibility & Assistance — Wildfire AZ** — statewide. Listed under: Food, Benefits.
+- **Health Information and Education Center — Raising Special Kids** — statewide · (602) 242-4366. Listed under: Benefits.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Retirement, Benefits.
+- **Housing Stability Court Navigator Program — Arizona Supreme Court** — statewide · (928) 817-4174. Listed under: Eviction prevention.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Benefits, Food.
+- **iCanConnect — Catholic Community Services - Deaf & Residential Services** — statewide · (520) 622-2801. Listed under: Benefits.
+- **Information on Health Care Financing — Raising Special Kids** — statewide. Listed under: Benefits.
+- **Mother's Grace** — statewide. Listed under: Eviction prevention, Utilities.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Benefits.
+- **Nutrition Services Program - Congregate Nutrition Site (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Congregate Nutrition Site (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Office of the Governor — State of Arizona** — statewide. Listed under: Benefits.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: Benefits.
+- **Parent School Choice Resources — School Choice Arizona** — statewide. Listed under: Benefits.
+- **People’s Information Guide — Wildfire AZ** — statewide. Listed under: Food, Utilities.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Benefits, Eviction prevention, Food, Utilities, Car repair, Direct transportation assistance (e.g. provides transport to appointments).
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Benefits.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **SSI/SSDI Outreach, Access, and Recovery (SOAR) — Substance Abuse and Mental Health Services Administration (SAMHSA)** — statewide. Listed under: Benefits.
+- **State Health Insurance Assistance Program (SHIP) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Benefits.
+- **Survivor Emergency Relief Fund (SERFund) — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Benefits, Food, Utilities, Car repair, Rapid rehousing.
+- **SVDP Home Visits — St Vincent de Paul of Phoenix** — statewide. Listed under: Food, Utilities, Eviction prevention, Benefits.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Eviction prevention, Utilities.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Utilities, Eviction prevention, Benefits.
+- **The Emergency Food Assistance Program — DES Division of Aging and Adult Services** — statewide · (928) 674-3614. Listed under: Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Benefits, Food.
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Eviction prevention.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Benefits, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **Unemployment Insurance Administration — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Benefits.
+- **Unemployment Insurance Benefit Program (UIB) — Arizona Department of Economic Security (DES) - AVSE** — statewide. Listed under: Benefits.
+- **Utility Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Benefits, Utilities.
+- **VA Benefits for Gulf War Veterans — Veterans Benefits Administration (VBA)** — statewide · (800) 827-1000. Listed under: Benefits.
+- **VA's Pension Program — Veterans Benefits Administration (VBA)** — statewide · (800) 827-1000. Listed under: Benefits.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Benefits.
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. Listed under: Benefits.
+- **Veterans in Need Project — Veterans in Need Project (VINP)** — statewide · (928) 699-1797. Listed under: Eviction prevention, Food, Utilities, Car repair.
+- **Veterans Services Office — South Mountain Community College** — statewide. Listed under: Benefits.
+- **Veterans Transportation Service (VTS) — Veterans Health Administration (VHA)** — statewide · (928) 445-4860. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Victim Compensation — Arizona Criminal Justice Commission** — statewide · (928) 337-7560. Listed under: Benefits.
 
 ## About this page
 

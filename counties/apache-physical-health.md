@@ -1,0 +1,159 @@
+# Physical Health in Apache County: Be Connected resources
+
+## Listed as serving Apache County under Physical Health (53)
+
+- **Arizona Families F.I.R.S.T. (AFF) — Catholic Charities Community Services** — serves Apache County · (928) 708-7295 · addresses in Bullhead City, Flagstaff, Prescott. Listed under: Wellness.
+- **Become a Patient at NAVAHCS — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Birth to Five team — The Guidance Center** — serves Apache County · (928) 527-1899 · addresses in Flagstaff. Listed under: General health issues, Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Apache County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Wellness.
+- **Community Living Center — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Contract Nursing Home Program — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Wellness.
+- **Dental Services — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Dental.
+- **Emergency Management and Preparedness Department of Apache County** — serves Apache County. Listed under: Wellness.
+- **General Surgery — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Health Promotion Disease Prevention (HPDP) Program — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Chronic disease.
+- **Homeless Patient Aligned Care Teams — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Aging health issues.
+- **Hopi Health Care Center (HHCC) — Phoenix Area Indian Health Service (PAIHS)** — serves Apache County · (928) 737-6000 · addresses in Polacca. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Hospice and Palliative Care — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Death & dying.
+- **Indian Health Service** — serves Apache County. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Information and Referral LIne — NACOG Aging (Region III)** — serves Apache County · (928) 213-5215 · addresses in Flagstaff. Listed under: Wellness, Aging health issues.
+- **Kinesiotherapy — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Laboratory — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Anthem, Cottonwood, Flagstaff, Holbrook, Kayenta, Kingman. Listed under: General health issues, Wellness.
+- **Low Vision Clinic — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Medical Foster Home — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Flagstaff, Kingman, Prescott. Listed under: Aging health issues, Wellness.
+- **Mental Health Residential Rehabilitation Treatment Program (MH RRTP) — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Detox, Residential treatment, General health issues, Chronic disease, Wellness.
+- **NAVAHCS Chinle VA Outreach Clinic — Northern Arizona VA Health Care System** — serves Apache County · addresses in Chinle. Listed under: General health issues, Wellness, Chronic disease.
+- **NAVAHCS Domiciliary — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Residential treatment, Inpatient, General health issues, Chronic disease, Wellness.
+- **NAVAHCS Health Care for Re-Entry Veterans Program — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Anthem, Chinle, Cottonwood, Flagstaff, Holbrook, Hotevilla. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **NAVAHCS Recreation Therapy — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **NAVAHCS Women's Specialty Care — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Death & dying, Wellness, Aging health issues, Pain management/chronic pain.
+- **NAVAHCS Women’s Health Primary Care Provider — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Navajo Outstation Vet Center — Tucson Vet Center** — serves Apache County · (505) 327-9684 · addresses in Gallup. Listed under: Wellness.
+- **North Country HealthCare Behavioral Health Services** — serves Apache County · (928) 522-9400 · addresses in 85936, Ash Fork, Flagstaff, Holbrook, Kingman, Lake Havasu City. Listed under: Wellness, General health issues.
+- **North Country HealthCare Dental Care** — serves Apache County · (928) 522-9400 · addresses in Ash Fork, Flagstaff, Winslow. Listed under: Dental.
+- **North Country HealthCare Primary Care & Family Medicine** — serves Apache County · (928) 522-9400 · addresses in 85936, Ash Fork, Bullhead City, Flagstaff, Grand Canyon, Holbrook. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **North Country HealthCare Women’s Health** — serves Apache County · (928) 637-2305 · addresses in Ash Fork, Bullhead City, Flagstaff, Payson, Williams. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Nutrition and Food Service — Northern Arizona VA Health Care System** — serves Apache County. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Oncology — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Chronic disease.
+- **P.A.W.S. Clinic — Humane Society of the White Mountains** — serves Apache County · (928) 368-5295 · addresses in Lakeside. Listed under: Wellness.
+- **Physical Medicine and Rehabilitation (PM&R) Clinic — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Physical Therapy — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Podiatry — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Prosthetics and Sensory Aids Service — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Show Low VA Clinic — Phoenix VA Health Care System** — serves Apache County · (928) 532-1069 · addresses in Show Low. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **Specialty Clinic Lab (Microbiology) — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Wellness.
+- **Support Services — ChangePoint Integrated Health** — serves Apache County · (928) 537-2951 · addresses in Holbrook, Lakeside, Show Low, Snowflake, Winslow. Listed under: General health issues, Wellness.
+- **Tobacco Cessation — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Medication-assisted treatment, Wellness.
+- **Transplant Program — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: Chronic disease.
+- **Trap Neuter Release Program (TNR) — Humane Society of the White Mountains** — serves Apache County · (928) 368-5295 · addresses in Lakeside. Listed under: Wellness.
+- **Veteran Health Education — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues.
+- **Veteran Services — Northland Pioneer College (NPC)** — serves Apache County · (928) 532-6111 · addresses in Holbrook, Show Low, Snowflake, Springerville, St. Johns, Whiteriver. Listed under: Wellness.
+- **White Mountain Apache Behavioral Health Services — White Mountain Apache Tribe** — serves Apache County · (928) 338-4811 · addresses in Cibecue, McNary, Whiteriver. Listed under: Medication-assisted treatment, Wellness, Sleep.
+- **White Mountain Apache Tribe Division of Health Programs** — serves Apache County · (928) 338-4955 · addresses in Whiteriver. Listed under: General health issues.
+- **Whiteriver Indian Hospital — Phoenix Area Indian Health Service (PAIHS)** — serves Apache County · (928) 338-4911 · addresses in Cibecue, Whiteriver. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **WIHCC Care Call Line — Winslow Indian Health Care Center (WIHCC)** — serves Apache County. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Women's General Care — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Rehabilitation Care — Northern Arizona VA Health Care System** — serves Apache County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain, Aging health issues.
+
+## Statewide programs under Physical Health, which also serve Apache County (95)
+
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: Traumatic Brain Injury, Wellness.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Wellness.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ADEQ Air Forecasting — Arizona Department of Environmental Quality** — statewide. Listed under: General health issues, Chronic disease, Wellness.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Wellness.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Wellness, General health issues.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Wellness.
+- **Ages and Stages Resources — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: General health issues.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Aging health issues.
+- **Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Chronic diseases, General health issues, Aging health issues, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — statewide · (480) 455-3957. Listed under: Chronic disease, Wellness.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Wellness.
+- **Arizona Heat Safety Resource Guide — Arizona Department of Health Services** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Arizona Immunization Program — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: General health issues.
+- **Arizona Long Term Care System (ALTCS) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (888) 621-6880. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Aging health issues.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Death & dying.
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Wellness, Death & dying, Aging health issues.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Wellness.
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Wellness.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **AZGeo Data Hub** — statewide. Listed under: General health issues, Wellness.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **BC Support Line — Be Connected** — statewide. Listed under: Wellness.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Wellness.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Billet Health Pharmacy Services** — statewide · (833) 224-5538. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: General health issues, Wellness.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Traumatic Brain Injury, Wellness.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Cancer Prevention & Control Programs — Arizona Department of Health Services** — statewide · (602) 364-0214. Listed under: Chronic disease, Death & dying.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Wellness.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Wellness.
+- **Chemical Emergency Preparedness — The American Red Cross** — statewide. Listed under: Wellness.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Wellness.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Wellness.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Wellness.
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Aging health issues.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness, Chronic disease.
+- **Disability Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **Disease Integration & Services — Arizona Department of Health Services** — statewide · (602) 364-4571. Listed under: General health issues, Chronic disease.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Wellness.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: Wellness.
+- **Fireworks Regulations in the City of Phoenix — Phoenix Fire Department** — statewide. Listed under: Wellness.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: General health issues, Aging health issues, Wellness, Pain management/chronic pain.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: General health issues.
+- **Healthcare Resources for Veterans and Service Providers — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Healthy Babies — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Wellness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General health issues, Wellness, Chronic disease.
+- **Home Care** — statewide. Listed under: Aging health issues, Chronic disease, Wellness.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Wellness, General health issues.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Death & dying.
+- **Life Enrichment Programs — Helping Hands for Freedom** — statewide. Listed under: Wellness.
+- **MAT Resources — Center for Applied Behavioral Health Policy** — statewide. Listed under: Medication-assisted treatment, Wellness.
+- **Medical Loan Closet — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **Mobile Spay/Neuter & Vaccination Clinics — The Parker Project** — statewide. Listed under: Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Wellness.
+- **Mobilize AZ — Blue Cross Blue Shield of Arizona** — statewide. Listed under: Chronic disease, Wellness.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Aging health issues.
+- **Obesity Prevention — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Office of Environmental Health — Arizona Department of Health Services** — statewide · (602) 364-3118. Listed under: Chronic disease, Wellness.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Prevent Mosquito-Borne Diseases — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Report Child Abuse or Neglect - Arizona Child Abuse Hotline — Arizona Department of Child Safety (DCS)** — statewide. Listed under: Wellness.
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Aging health issues.
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior Rehabilitation Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues, Aging health issues, Wellness.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **St. Joseph Baskets for Homeless Veterans — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Wellness.
+- **Summer Safety — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — statewide · (520) 795-9671. Listed under: Wellness.
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Wellness.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Vector-Borne & Zoonotic Diseases Program — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Wellness.
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Traumatic Brain Injury, General health issues.
+
+## About this page
+
+This page lists every program in the directory that Be Connected lists as serving Apache County under the topic Physical Health. It is the full list for that county and topic. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

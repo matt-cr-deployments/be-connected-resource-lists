@@ -1,6 +1,58 @@
 # Be Connected resources in Glendale, Arizona
 
+- **Adult Day Health Services - Engagement & Wellness Centers for Adults of Any Age — AllThrive365** — in Glendale: 6010 West Northern Ave, #880, Glendale 85301 · (602) 532-2983. 
+- **Aftercare and Recovery Maintenance — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Prescription medication, Drugs, Alcohol.
+- **Aftercare and Recovery Maintenance — La Frontera Arizona** — in Glendale: 4425 W. Olive Ave., Ste. 194, Glendale 85302 · (480) 784-1514. Listed under: Prescription medication, Drugs, Alcohol.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Glendale: 6000 W. Olive Avenue, Instruction Building 2, Rm. 105, Glendale 85302 · (623) 845-4700. Listed under: Other.
+- **Behavioral Health Programs — A New Leaf, Mesa Community Action Network (MesaCAN)** — in Glendale: 8581 N. 61st Ave, Glendale 85302 · (623) 934-1991. Listed under: General mental health services, ADHD, Anger, Anxiety, Autism, Bullying.
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Glendale: 5836 W Camelback Rd, Glendale 85301 · (602) 535-4444. 
+- **Chronic Disease Stress Management Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Chronic pain, Chronic diseases.
+- **Coping Skills Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Mental health wellness.
+- **DBT Program — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: General mental health services, Mental health wellness, Trauma, TBI-related symptoms.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Detox, Inpatient, Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness.
+- **Domestic Violence Program — DES Division of Aging and Adult Services** — in Glendale: -, Glendale 85069 · (623) 939-6031. 
+- **Electroconvulsive Therapy (ECT) Shock Therapy — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Intensive outpatient (IOP), Depression/mood disorders, Psychosis, Mental health wellness, Chronic diseases.
+- **Empowerment Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: General mental health services.
+- **FSDS Service Dog training program — The Foundation for Service Dog Support, Inc.** — in Glendale: 5060 W Olive Ave, Glendale 85302 · (623) 200-9762. Listed under: Post-traumatic stress, TBI-related symptoms.
+- **General Mental Health Counseling — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: General mental health services.
+- **Glendale Works — Phoenix Rescue Mission** — in Glendale: 5959 West Brown Street, Glendale 85302 · (623) 930-3590. Listed under: Homelessness, Finding housing, Transitional housing, Co-occurring disorders (mental health/substance use), Mental health wellness.
+- **Grief Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Grief & loss.
+- **Guided Imagery Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (602) 251-0650. Listed under: Mental health wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General mental health services, Anger, Anxiety, Autism.
+- **Hospice Care & More Programs — Hospice of the Valley** — in Glendale: Inpatient Care, 13614 N. 59th Avenue, Glendale 85304 · (602) 978-1343. Listed under: Residential treatment, Alzheimers, dementia & cognitive issues, Mental health wellness.
+- **Independent Living Services — Ability360** — in Glendale: 6829 N. 57th Ave., Glendale 85301 · (602) 424-4100. Listed under: Finding housing, Home renovation or repair, Mental health wellness, Other, Benefits.
+- **Individual Substance Abuse Counseling — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Intensive outpatient (IOP), Alcohol, Drugs, Prescription medication.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Inpatient, Medication-assisted treatment, Anger, Anxiety, Bullying, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Grief & loss.
 - **Intensive Outpatient Program (IOP) — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Intensive outpatient (IOP), Prescription medication, Drugs, Alcohol.
+- **Intensive Outpatient Treatment (IOP) Programs — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General mental health services, Anxiety, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness, Post-traumatic stress.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Glendale: 5002 W. Glendale Ave., Suites 101-102, Glendale 85301 · (623) 233-1099. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Mental health wellness, Drugs, Alcohol, Prescription medication.
+- **Mission Sharing — Phoenix Rescue Mission** — in Glendale: 5605 N. 55th Ave., Glendale 85301 · (602) 773-4344. Listed under: Homelessness.
+- **Navy Reserve Support — Navy Operational Support Center (NOSC) Phoenix** — in Glendale: 14101 Marauder St, Luke Air Force Base, Glendale 85309 · (602) 484-7292. 
+- **One-Stop — ARIZONA@WORK Maricopa County** — in Glendale: 4425 W. Olive Avenue, Suites 190 & 200, Glendale 85302 · (602) 372-4200. 
+- **Peer Support Services — Community Medical Services** — in Glendale: 5002 W. Glendale Ave., Suites 101-102, Glendale 85301 · (623) 233-1099. Listed under: Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol, Drugs, Prescription medication.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Glendale: 5002 W. Glendale Ave., Suites 101-102, Glendale 85301 · (623) 233-1099. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Mental health wellness, Drugs, Alcohol, Prescription medication.
+- **Road to Recovery — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Intensive outpatient (IOP), Alcohol, Drugs, Prescription medication.
+- **Serving Our Veterans and Active Military Members — Arizona Christian University** — in Glendale: 1 W. Firestorm Way, Glendale 85306 · (602) 489-5300. 
+- **Standard Outpatient Program (SOP) — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Alcohol, Drugs, Prescription medication.
+- **Supportive & Palliative Care Programs — Hospice of the Valley** — in Glendale: Inpatient Care, 13614 N. 59th Avenue, Glendale 85304 · (602) 978-1343. Listed under: Alzheimers, dementia & cognitive issues, Mental health wellness.
+- **Survivors Group — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302. Listed under: Sexual trauma.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Homelessness, Emergency shelter, Finding housing, Mental health wellness, Co-occurring disorders (mental health/substance use).
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Homelessness, Emergency shelter, Grief & loss, Mental health wellness, Post-traumatic stress, Trauma.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Homelessness.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Homelessness, Mental health wellness.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — in Glendale: 7238 N. 61st Avenue, Glendale 85301 · (623) 934-5950. Listed under: Homelessness, Mental health wellness.
+- **The Salvation Army North West Valley/Sun Cities Corps Community Center — The Salvation Army Phoenix Metro** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Homelessness, Mental health wellness.
+- **The Salvation Army Phoenix Maryvale Corps Community Center — The Salvation Army Phoenix Metro** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Mental health wellness.
+- **The Salvation Army Phoenix Maryvale Corps Community Center — The Salvation Army Phoenix Metro** — in Glendale: 7238 N. 61st Avenue, Glendale 85301 · (623) 934-5950. Listed under: Mental health wellness.
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Glendale: 7238 N. 61st Avenue, Glendale 85301 · (623) 934-5950. Listed under: Mental health wellness.
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Glendale: 6010 W Northern Ave, Glendale 85301 · (623) 934-0469. Listed under: Mental health wellness.
+- **Trauma Therapy — La Frontera Arizona** — in Glendale: 4425 W Olive Ave, Ste 194, Glendale 85302 · (480) 784-1514. Listed under: Trauma.
+- **Trauma-Focused Intensive Outpatient Program (IOP) in Arizona — Aurora Behavioral Health System** — in Glendale: 6015 W. Peoria Ave., Glendale 85302 · (623) 344-4400. Listed under: Intensive outpatient (IOP), Anxiety, Anger, Mental health wellness, Post-traumatic stress, Trauma.
+- **VA Benefits for Gulf War Veterans — Veterans Benefits Administration (VBA)** — in Glendale: Luke Air Force Base, Glendale 85308 · (800) 827-1000. 
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Glendale: 14711 North 59th Avenue, Glendale 85306 · (602) 588-9622. 
+- **Veteran Transportation for Behavioral Health Services — Banner Health** — in Glendale: 5555 W Thunderbird Road, Glendale 85306 · (602) 865-5555. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Anger, Anxiety, Chronic diseases, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Eating disorders.
+- **Veterans Services Center — Glendale Community College** — in Glendale: 6000 West Olive Avenue, Building: Veteran Services Center (VSC), Glendale 85302 · (623) 845-3362. 
+- **Veteran’s Support Coalition — Glendale Community College** — in Glendale: 6000 West Olive Avenue, Glendale 85302 · (623) 845-3997. 
 
 ## About this page
 

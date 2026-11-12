@@ -1,0 +1,63 @@
+# Legal: Be Connected resources in Tucson, Arizona
+
+- **Addressing Issues — Pima County Development Services** — in Tucson: 201 N. Stone Ave., Tucson 85701 · (520) 724-9000. Listed under: Landlord/tenant, Other.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Tucson: 4905 E. Broadway Blvd, Bldg. C Room C-117, Tucson 85711 · (520) 206-4580. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Tucson: 335 N Wilmot Rd, #420, Tucson 85711 · (520) 260-8828. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Tucson: 4905 E. Broadway Blvd, Bldg. C Room C-117, Tucson 85711 · (520) 206-4580. Listed under: Other.
+- **AZ Attorney General Resources for Seniors & Elders — Arizona Attorney General’s Office** — in Tucson: 400 West Congress, South Building, Suite 315, Tucson 85701 · (520) 628-6504. Listed under: Family law.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite 110, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Tucson: 2950 N. Dodge Blvd., Suite A, Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Other, Benefits.
+- **Diversion Services — HOPE, Incorporated** — in Tucson: 1200 N. Country Club, Tucson 85716. Listed under: Other.
+- **Diversion Services — HOPE, Incorporated** — in Tucson: 1270 W Silverlake Rd, Tucson 85713. Listed under: Other.
+- **Employer Services & Resources** — in Tucson: 1455 South Alvernon Way, Tucson 85711 · (520) 872-9095. Listed under: Employment.
+- **Employer Services & Resources** — in Tucson: 316 West Fort Lowell Road, Tucson 85705 · (520) 638-2230. Listed under: Employment.
+- **Employer Services & Resources** — in Tucson: Pima County Kino Veterans' Workforce Center, 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. Listed under: Employment.
+- **Employer Services & Resources** — in Tucson: 4355 East Calle Aurora, Tucson 85711 · (520) 206-3550. Listed under: Employment.
+- **Employer Services & Resources** — in Tucson: 340 North Commerce Park Loop, City of Tucson Community Resource Center, Tortolita Building, Tucson 85745 · (520) 724-7650. Listed under: Employment.
+- **End of Life Care Planning — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Family law.
+- **Fingerprint Services — Pima County Sheriff's Department** — in Tucson: 1650 East Benson Highway, Suite A, Tucson 85714 · (520) 351-4971. Listed under: Other.
+- **Foreclosure Prevention Resources — Pima County Housing Center (El Blanco)** — in Tucson: Pima County Kino Veterans' Workforce Center, 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. Listed under: Landlord/tenant.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Benefits, Other.
+- **Housing Counseling Agencies — Pima County Housing Center (El Blanco)** — in Tucson: 801 W. Congress St., Tucson 85745 · (520) 724-2460. Listed under: Landlord/tenant.
+- **Immigrant Survivors Legal Assistance — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. Listed under: Family law.
+- **Immigration — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. Listed under: Family law.
+- **Independent Living Services — Ability360** — in Tucson: 1001 N. Alvernon Way, Tucson 85711 · (520) 449-8375. Listed under: Other, Benefits.
+- **Information Referral — American Red Cross - Southern Arizona** — in Tucson: 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: Family law, Landlord/tenant, Benefits, Discharge status, Misdemeanor, Felony.
+- **Interpreting Services — Community Outreach Program for the Deaf** — in Tucson: 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: Other.
+- **Legal Assistance — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Landlord/tenant, Family law, Benefits, Other.
+- **Legal Assistance — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Landlord/tenant, Family law, Benefits, Other.
+- **Legal Help and Education — State Bar of Arizona** — in Tucson: 270 N. Church Ave., Suite 100, Tucson 85701 · (520) 623-9944. Listed under: Landlord/tenant, Family law, Benefits, Employment, Misdemeanor, Felony.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Tucson: 8467 East Broadway Blvd, Tucson 85710-4009 · (520) 790-7262. Listed under: Other.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Tucson: 7601 S. Camino Benem, Tucson 85757 · (520) 879-5530. Listed under: Other.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — in Tucson: 8467 East Broadway Blvd, Tucson 85710-4009 · (520) 790-7262. Listed under: Other.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — in Tucson: 7601 S. Camino Benem, Tucson 85757 · (520) 879-5530. Listed under: Other.
+- **Mental Health Outpatient Services — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Other, Benefits, Family law.
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. Listed under: Employment.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Family law, Other.
+- **Parents for Parents Program — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Family law, Other.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 8999 E. Tanque Verde Rd., Tucson 85749 · (520) 351-4511. Listed under: Other.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 2545 E. Ajo Way, Tucson 85713 · (520) 351-3888. Listed under: Other.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 7300 N. Shannon Rd., Tucson 85741 · (520) 351-6311. Listed under: Other.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 6261 N. Sandario Rd., Tucson 85743 · (520) 351-3811. Listed under: Other.
+- **Pima County Civil Enforcement Services — Pima County Sheriff's Department** — in Tucson: Main Headquarters, 1750 E. Benson Highway, Tucson 85714 · (520) 351-4600. Listed under: Landlord/tenant, Family law, Other.
+- **Pima County Civil Enforcement Services — Pima County Sheriff's Department** — in Tucson: 32 N. Stone Avenue, 16th Floor, Tucson 85701 · (520) 351-6000. Listed under: Landlord/tenant, Family law, Other.
+- **Pima County Jail Services — Pima County Sheriff's Department** — in Tucson: 1270 W. Silverlake Road, Tucson 85713 · (520) 351-8111. Listed under: Felony, Other.
+- **Pima County Jail Services — Pima County Sheriff's Department** — in Tucson: 1801 S. Mission Road, Tucson 85713 · (520) 351-8311. Listed under: Felony, Other.
+- **Pima County Neighborhood Watch Program — Pima County Sheriff's Department** — in Tucson: 1650 East Benson Highway, Suite A, Tucson 85714 · (520) 351-4972. Listed under: Other.
+- **Policy Work & Community Outreach — Veterans' Advocacy Law Clinic** — in Tucson: University of Arizona James E. Rogers College of Law, 1201 E. Speedway Blvd., Tucson 85721 · (520) 626-5232. Listed under: Benefits, Other.
+- **Pro Bono Civil Legal Services — Step Up To Justice** — in Tucson: 320 N. Commerce Park Loop, Suite 100, Tucson 85745. Listed under: Landlord/tenant, Family law, Benefits.
+- **Project Action for Veterans — The Primavera Foundation** — in Tucson: 3504 S. 6th Ave., Suite 150, Tucson 85701 · (520) 308-3093. Listed under: Other.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Landlord/tenant, Family law, Benefits.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Landlord/tenant, Family law, Benefits.
+- **SALA - Veterans Hope & Justice Project — Southern Arizona Legal Aid - SALA** — in Tucson: 2343 East Broadway Blvd, Suite 200, Tucson 85719 · (520) 623-9461. Listed under: Benefits, Landlord/tenant, Family law, Misdemeanor, Other.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Other, Misdemeanor, Benefits.
+- **U.S. Passports — Pima County Development Services** — in Tucson: 201 N. Stone Ave., Tucson 85701 · (520) 724-9000. Listed under: Other.
+- **VA Benefits Assistance — DAV Chapter 4 Tucson** — in Tucson: 4145 W. Ina Road, Suite 131, Tucson 85741 · (520) 791-9067. Listed under: Benefits.
+- **Vehicle Impound Services — Pima County Sheriff's Department** — in Tucson: 1650 E. Benson Highway, Suite B, Tucson 85714 · (520) 351-6105. Listed under: Other.
+- **Veteran Justice Outreach Initiative (VJO) — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Felony, Other.
+- **Veteran Services — American Red Cross - Southern Arizona** — in Tucson: 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: Family law, Benefits, Landlord/tenant.
+
+## About this page
+
+This page lists programs with an address in Tucson. Programs based elsewhere that serve Tucson are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

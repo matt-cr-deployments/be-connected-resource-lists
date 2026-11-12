@@ -1,19 +1,198 @@
 # Housing & Homelessness in Maricopa County: Be Connected resources
 
-## Listed as serving Maricopa County under Housing & Homelessness (8)
+## Listed as serving Maricopa County under Housing & Homelessness (155)
 
+- **161st Air Refueling Wing Airman & Family Readiness Program — 161st Air Refueling Wing - Arizona Air National Guard** — serves Maricopa County · (602) 302-9393 · addresses in Phoenix. Listed under: Homelessness, Emergency shelter, Eviction prevention.
+- **24 Hour Senior Helpline — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County. Listed under: Home renovation or repair, Finding housing.
+- **24/7 Crisis Line — Solari, Inc.** — serves Maricopa County · (602) 222-9444. Listed under: Finding housing.
+- **Affordable Housing Opportunities — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Affordable housing programs, Finding housing.
+- **Agency Review — Tempe Community Council (TCC)** — serves Maricopa County · (480) 858-2300 · addresses in Tempe. Listed under: Homelessness, Eviction prevention, Home renovation or repair, Foreclosure prevention, Emergency shelter.
+- **Aging in Place (AIP) for Vets — Habitat for Humanity - Central Arizona** — serves Maricopa County · (602) 268-9022. Listed under: Home renovation or repair.
+- **Aid to Stranded Travelers — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 261-6883 · addresses in Phoenix. Listed under: Homelessness, Emergency shelter.
+- **Area Agency on Aging Resource Guide — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County · (888) 783-7500. Listed under: Home renovation or repair, Eviction prevention, Foreclosure prevention, Affordable housing programs, Finding housing, Emergency shelter.
+- **Assertive Community Treatment (ACT) — Community Bridges, Inc.** — serves Maricopa County · (877) 931-9142 · addresses in Mesa. Listed under: Finding housing.
+- **Avondale Community Action Program — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Eviction prevention.
+- **Avondale Community Action Program — City of Avondale** — serves Maricopa County · (623) 333-2707 · addresses in Avondale. Listed under: Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **AZ Complete Health Avondale Resource Center — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2703 · addresses in Avondale. Listed under: Finding housing, Homelessness, Eviction prevention.
+- **CARE 7 - Veteran Services — City of Tempe** — serves Maricopa County · (480) 858-2388 · addresses in Tempe. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Home buying, Home renovation or repair.
+- **Case Management — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Finding housing.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Maricopa County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI Supportive Services For Veteran Families (SSVF) Program — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa. Listed under: Homelessness, Transitional housing, Permanent supportive housing, Finding housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Maricopa County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI Women & Children Programs — Community Bridges, Inc.** — serves Maricopa County · (480) 461-1711 · addresses in Mesa. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Maricopa County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Transitional housing, Permanent supportive housing, Homelessness.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — serves Maricopa County · (602) 688-6211 · addresses in Phoenix. Listed under: Emergency shelter, Homelessness.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Clay Hunt Fellowship Program — Team Rubicon** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Code:Red Summer Heat Relief — Phoenix Rescue Mission** — serves Maricopa County. Listed under: Homelessness.
+- **Community Action Programs - Peoria and Wickenburg — AllThrive365** — serves Maricopa County · (623) 979-3911 · addresses in Peoria, Wickenburg. Listed under: Eviction prevention, Foreclosure prevention.
+- **Community Emergency Notification System (CENS) — Maricopa Association of Governments (MAG)** — serves Maricopa County. Listed under: Emergency shelter.
+- **Community Living — Southwest Behavioral & Health Services** — serves Maricopa County. Listed under: Residential treatment, Inpatient, Medication-assisted treatment, Homelessness.
+- **Community Support Services — Foothills Food Bank and Resource Center** — serves Maricopa County · (623) 374-9441 · addresses in Black Canyon City, Cave Creek. Listed under: Homelessness, Home renovation or repair, Eviction prevention.
+- **Counseling Services — Mesa Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. Listed under: Finding housing, Homelessness.
+- **Crisis Transition Navigators — La Frontera Arizona** — serves Maricopa County · (480) 784-1514. Listed under: Finding housing.
+- **Emergency Home Repair — Habitat for Humanity - Central Arizona** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Emergency Housing Rehabilitation Program — City of Surprise** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Emergency Shelter — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 229-1241 · addresses in Phoenix. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Emergency Shelter — Chrysalis Shelter** — serves Maricopa County. Listed under: Emergency shelter, Finding housing, Affordable housing programs, Homelessness, Transitional housing.
 - **Family Housing Hub — UMOM New Day Centers** — serves Maricopa County · (602) 595-8700 · addresses in Mesa, Phoenix. Listed under: Homelessness, Finding housing, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — serves Maricopa County · (602) 534-2433 · addresses in Phoenix. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **Family Services Department — Habitat for Humanity - Central Arizona** — serves Maricopa County · (602) 268-9022 · addresses in Peoria, Phoenix. Listed under: Home buying, Home renovation or repair.
+- **Find Help Phoenix (FHP) — Maricopa County Department of Public Health (MCDPH)** — serves Maricopa County. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **First- time Home Buyer Programs — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Home buying.
+- **Forensic Assertive Community Treatment (FACT) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Residential treatment, Finding housing, Permanent supportive housing, Transitional housing.
+- **FSL Affordable Rental Housing & Sales — AllThrive365** — serves Maricopa County · (602) 285-0505. Listed under: Finding housing, Affordable housing programs, Permanent supportive housing, Home buying.
+- **FSL Care Facilities Search Assistance — AllThrive365** — serves Maricopa County · (602) 285-1800. Listed under: Finding housing.
+- **Furnishing Dignity** — serves Maricopa County. Listed under: Affordable housing programs, Homelessness, Transitional housing, Home renovation or repair.
+- **Glendale Works — Phoenix Rescue Mission** — serves Maricopa County · (623) 930-3590 · addresses in Glendale. Listed under: Homelessness, Finding housing, Transitional housing.
+- **Grand Veterans Village — U.S. VETS - Phoenix** — serves Maricopa County · (602) 427-0404 · addresses in Phoenix. Listed under: Affordable housing programs, Homelessness.
 - **Halle Women's Center — UMOM New Day Centers** — serves Maricopa County · addresses in Phoenix. Listed under: Homelessness, Emergency shelter.
+- **Harvest Compassion Center Food & Clothing Bank - Maryvale** — serves Maricopa County · addresses in Phoenix. Listed under: Homelessness.
+- **Harvest Compassion Center Food & Clothing Bank - Phoenix** — serves Maricopa County · addresses in Phoenix. Listed under: Homelessness.
+- **Health Care Services for the Homeless — Circle the City** — serves Maricopa County · (602) 776-9000 · addresses in Phoenix. Listed under: Homelessness.
+- **Helping Women & Families Thrive — Hope Women's Center** — serves Maricopa County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. Listed under: Eviction prevention.
+- **Home Improvements — AllThrive365** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Home in 5 — Maricopa County** — serves Maricopa County. Listed under: Affordable housing programs, Home buying.
+- **Home Repair & Renovation Services — Operation Enduring Gratitude** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Home Repair Assistance — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Homeless Service Provider Transit Program — City of Phoenix** — serves Maricopa County. Listed under: Homelessness.
+- **Hometown for All — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. Listed under: Finding housing, Affordable housing programs, Homelessness.
+- **HOPE (Homeless Outreach Prevention Effort) — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Hope Coach Mobile Outreach — Phoenix Rescue Mission** — serves Maricopa County · (602) 233-3000 · addresses in Phoenix. Listed under: Homelessness, Emergency shelter.
+- **Housing & Community Development — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2705 · addresses in Avondale. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair, Home buying.
+- **Housing for Hope — Catholic Charities Community Services** — serves Maricopa County · addresses in Phoenix. Listed under: Affordable housing programs, Homelessness.
 - **Housing Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Housing — Mercy Care** — serves Maricopa County. Listed under: Finding housing, Affordable housing programs, Permanent supportive housing.
+- **Housing, Community Development & Non-Profit Funding — Town of Gilbert** — serves Maricopa County · (480) 503-6956 · addresses in Gilbert. Listed under: Permanent supportive housing.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **HSC Resources — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Hygiene Kits for those in need — Shoebox Ministry** — serves Maricopa County · (480) 905-1610 · addresses in Phoenix. Listed under: Homelessness.
+- **I-HELP Emergency Shelter — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 422-8922 · addresses in Tempe. Listed under: Homelessness, Emergency shelter.
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — serves Maricopa County · addresses in Phoenix. Listed under: Finding housing.
+- **Independent Living Services — Ability360** — serves Maricopa County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Finding housing, Home renovation or repair.
+- **Independent Living Workshop — Ability360** — serves Maricopa County · (602) 256-2245 · addresses in Phoenix. Listed under: Finding housing.
+- **Integrated Health Care Services for the Homeless — Circle the City** — serves Maricopa County · (602) 776-9000 · addresses in Phoenix. Listed under: Homelessness.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Gilbert, Globe, Payson, Phoenix, Scottsdale, Show Low. Listed under: Finding housing, Homelessness, Emergency shelter, Permanent supportive housing, Transitional housing, Rapid re-housing.
 - **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Maricopa County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Foreclosure prevention, Eviction prevention, Affordable housing programs, Finding housing.
+- **Luke AFB Air Force Aid Society — Luke Air Force Base** — serves Maricopa County · (623) 856-6550 · addresses in Luke Air Force Base. Listed under: Emergency shelter, Eviction prevention.
+- **Major Rehabilitation Program — City of Surprise** — serves Maricopa County. Listed under: Home renovation or repair.
 - **MANA House — Catholic Charities MANA House** — serves Maricopa County · (602) 254-6785 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Rapid re-housing.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Maricopa County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Emergency shelter, Eviction prevention, Home renovation or repair.
+- **Mesa - Silvercrest Senior Citizens' Residence — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 649-9117 · addresses in Mesa. Listed under: Homelessness, Permanent supportive housing.
+- **Mesa Vet Center — Tucson Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. Listed under: Homelessness, Finding housing, Eviction prevention.
+- **Military and Veteran Success Center (MVSC) — Rio Salado College** — serves Maricopa County · (480) 377-4150 · addresses in Tempe. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention, Rapid re-housing.
+- **Mission Sharing — Phoenix Rescue Mission** — serves Maricopa County · (602) 773-4344 · addresses in Glendale. Listed under: Homelessness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — serves Maricopa County · addresses in El Mirage, Mesa, Phoenix, Tempe. Listed under: Homelessness.
+- **Mobile Outreach — Catholic Charities MANA House** — serves Maricopa County · (602) 254-6785 · addresses in Phoenix. Listed under: Homelessness.
+- **Mobile Training Center (MTC) — Team Rubicon** — serves Maricopa County. Listed under: Home renovation or repair.
+- **MVRC Event Calendar — Mesa Veterans Resource Center** — serves Maricopa County · (480) 834-2105 · addresses in Mesa. Listed under: Finding housing, Homelessness, Eviction prevention.
+- **My Beautiful PHX Cleanup Kits — Keep Phoenix Beautiful** — serves Maricopa County · addresses in Phoenix. Listed under: Home renovation or repair.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — serves Maricopa County · (602) 535-4444 · addresses in Flagstaff, Lake Havasu City, Peoria, Phoenix, Prescott, Yuma. Listed under: Finding housing, Affordable housing programs.
+- **Neighborhood Services Division — Town of Gilbert** — serves Maricopa County · (480) 503-6871 · addresses in Gilbert. Listed under: Permanent supportive housing.
+- **Operation — Team Rubicon** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — serves Maricopa County · (602) 776-7676 · addresses in Phoenix. Listed under: Homelessness.
+- **Outreach and Social Services Program — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Eviction prevention.
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — serves Maricopa County · (844) 691-5948 · addresses in Phoenix. Listed under: Detox, Medication-assisted treatment, Homelessness, Transitional housing, Finding housing.
+- **Patient Services — Arizona SonShine** — serves Maricopa County. Listed under: Homelessness.
+- **Permanent Housing — U.S. VETS - Phoenix** — serves Maricopa County · addresses in Phoenix. Listed under: Permanent supportive housing.
+- **Phoenix Human Services Department Homeless Programs** — serves Maricopa County · (602) 534-2433 · addresses in Phoenix. Listed under: Homelessness, Finding housing, Emergency shelter, Rapid re-housing.
+- **Phoenix Silvercrest Senior Citizens' Residence & Laura Danieli Senior Activity Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (602) 251-2000 · addresses in Phoenix. Listed under: Homelessness, Permanent supportive housing.
+- **PHX C.A.R.E.S. — Phoenix Human Services Department** — serves Maricopa County. Listed under: Homelessness.
+- **Police Housing Incentive Program — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Home buying.
+- **Project H3: Home, Health Hope — Arizona Housing Coalition** — serves Maricopa County · (602) 340-9393 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Qualifying for a Habitat Home — Habitat for Humanity - Central Arizona** — serves Maricopa County. Listed under: Finding housing, Home buying, Homelessness, Home renovation or repair, Affordable housing programs.
+- **Rally Point Navigator Program — La Frontera Arizona** — serves Maricopa County. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Eviction prevention.
+- **Reducing Homelessness in Mesa — City of Mesa** — serves Maricopa County · (480) 644-3000 · addresses in Mesa. Listed under: Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing, Rapid re-housing, Affordable housing programs.
+- **Repair my Home - Homeowner Rehabilitation Program — City of Mesa** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Safe at Home Community of Care — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Eviction prevention, Home renovation or repair.
+- **Save the Family Career Development Center** — serves Maricopa County · (480) 898-0228 · addresses in Mesa. Listed under: Homelessness.
+- **Save the Family Supportive Services for Veteran Families (SSVF)** — serves Maricopa County. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Permanent supportive housing, Eviction prevention.
+- **Scottsdale Works – Brick by Brick — City of Scottsdale** — serves Maricopa County · (480) 312-0108 · addresses in Scottsdale. Listed under: Homelessness.
+- **Serious Mental Illness (SMI) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Detox, Residential treatment, Medication-assisted treatment, Finding housing, Homelessness, Permanent supportive housing.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — serves Maricopa County · (602) 248-6040 · addresses in Phoenix. Listed under: Detox, Residential treatment, Medication-assisted treatment, Homelessness, Transitional housing, Finding housing, Affordable housing programs, Eviction prevention, Rapid re-housing.
+- **Sex Trafficking - DIGNITY Diversion program — Catholic Charities Community Services** — serves Maricopa County. Listed under: Homelessness, Emergency shelter.
+- **Smoke Detector Program — City of Surprise** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Solari Crisis Transportation (Dispatch & Reporting) — Solari, Inc.** — serves Maricopa County. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **SRPMIC Department of Health and Human Services (HHS) — Salt River Pima - Maricopa Indian Community (SRPMIC)** — serves Maricopa County · (480) 362-7740 · addresses in Scottsdale. Listed under: Homelessness, Finding housing, Affordable housing programs, Eviction prevention, Emergency shelter.
+- **Summer of Safety — Tempe Fire Medical Rescue Department** — serves Maricopa County. Listed under: Homelessness, Emergency shelter.
+- **Supportive Housing Navigator — La Frontera Arizona** — serves Maricopa County. Listed under: Finding housing, Homelessness.
 - **Supportive Services for Veteran Families — U.S. VETS - Phoenix** — serves Maricopa County · (602) 757-9723 · addresses in Phoenix. Listed under: Finding housing, Rapid re-housing, Homelessness, Emergency shelter, Transitional housing, Affordable housing programs.
+- **Supportive Services for Veteran Families — UMOM New Day Centers** — serves Maricopa County. Listed under: Finding housing, Homelessness, Emergency shelter, Affordable housing programs, Rapid re-housing.
+- **Surprise HOA Connection — City of Surprise** — serves Maricopa County. Listed under: Permanent supportive housing.
+- **SVDP Adopt-a-Family Christmas Program — St Vincent de Paul of Phoenix** — serves Maricopa County. Listed under: Homelessness, Eviction prevention.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: Homelessness.
+- **SVDP Exiting Homelessness — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. Listed under: Homelessness, Eviction prevention, Finding housing, Transitional housing, Emergency shelter.
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: Eviction prevention.
 - **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. Listed under: Finding housing, Transitional housing, Homelessness, Emergency shelter.
+- **TCAA's Financial Success Center — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 422-8922 · addresses in Tempe. Listed under: Home buying, Affordable housing programs, Finding housing, Eviction prevention.
+- **TCAA's Oasis Drop-In Center — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 590-5514 · addresses in Tempe. Listed under: Homelessness, Finding housing.
+- **Tempe (TCAA) Community Action Agency General Resources — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 422-8922 · addresses in Tempe. Listed under: Eviction prevention.
+- **The Salvation Army Apache Junction Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 962-9103 · addresses in Apache Junction, Mesa. Listed under: Emergency shelter, Homelessness, Eviction prevention.
+- **The Salvation Army Chandler Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (602) 560-0021 · addresses in Chandler. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 934-0469 · addresses in Apache Junction, Casa Grande, Chandler, Glendale, Mesa, Phoenix. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — serves Maricopa County · (480) 967-8649 · addresses in Apache Junction, Avondale, Chandler, Glendale, Mesa, Phoenix. Listed under: Homelessness.
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 685-3208 · addresses in Phoenix. Listed under: Emergency shelter, Finding housing, Rapid re-housing, Eviction prevention.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 934-0469 · addresses in Glendale, Peoria, Phoenix. Listed under: Homelessness.
+- **The Salvation Army Mesa Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 962-9103 · addresses in Apache Junction, Mesa. Listed under: Homelessness, Emergency shelter, Transitional housing, Eviction prevention, Rapid re-housing.
+- **The Salvation Army North West Valley/Sun Cities Corps Community Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 977-1084 · addresses in Glendale, Peoria, Surprise. Listed under: Homelessness.
+- **The Salvation Army Phoenix Emergency Family Shelter — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 685-3208 · addresses in Phoenix. Listed under: Emergency shelter, Homelessness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 251-2000 · addresses in Mesa, Phoenix. Listed under: Finding housing, Affordable housing programs.
+- **The Salvation Army Tempe Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 945-4758 · addresses in Tempe. Listed under: Homelessness, Emergency shelter, Finding housing, Eviction prevention.
+- **The Salvation Army's Project H.O.P.E. — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 685-3208 · addresses in Phoenix. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **The ‘Bridge’ Emergency Shelter For Men — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa. Listed under: Detox, Inpatient, Medication-assisted treatment, Homelessness, Emergency shelter, Finding housing, Transitional housing.
+- **Tool Box - Neighborhood Tool Loan Program — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Home renovation or repair.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — serves Maricopa County · (602) 346-3384 · addresses in Phoenix. Listed under: Homelessness, Emergency shelter.
+- **Transition in Place (TIP) — U.S. VETS - Phoenix** — serves Maricopa County. Listed under: Transitional housing.
 - **Transitional Housing — Chrysalis Shelter** — serves Maricopa County · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing.
+- **UMOM Housing Programs — UMOM New Day Centers** — serves Maricopa County · addresses in Phoenix. Listed under: Homelessness, Affordable housing programs, Finding housing, Permanent supportive housing, Rapid re-housing.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Veterans Benefits Assistance & Resources — Veterans Affinity** — serves Maricopa County. Listed under: Finding housing, Homelessness, Home buying, Home renovation or repair, Permanent supportive housing.
+- **Veterans Furniture Center** — serves Maricopa County · (623) 232-3880 · addresses in Phoenix. 
+- **Veterans Housing Resources — Veterans Affinity** — serves Maricopa County. Listed under: Finding housing, Homelessness, Eviction prevention, Home renovation or repair, Home buying.
+- **WCSC Veterans Support Office — Wickenburg Community Services Corporation** — serves Maricopa County · (602) 810-1356 · addresses in Wickenburg. Listed under: Finding housing, Homelessness, Eviction prevention.
+- **West Valley Vet Center - Phoenix** — serves Maricopa County · (623) 398-8854 · addresses in Peoria. Listed under: Finding housing, Homelessness, Eviction prevention.
+- **West Valley Veteran Success Center — Surprise Resource Center** — serves Maricopa County · addresses in Surprise. Listed under: Eviction prevention.
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — serves Maricopa County · (623) 247-1234 · addresses in Phoenix. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Homelessness, Finding housing.
+- **Wickenburg Low-Income Assistance — Town of Wickenburg** — serves Maricopa County · (928) 684-7894 · addresses in Wickenburg. Listed under: Homelessness, Eviction prevention, Finding housing.
+- **Wickenburg Police Department — Town of Wickenburg** — serves Maricopa County · (928) 684-5411 · addresses in Wickenburg. Listed under: Homelessness.
+- **Workforce/Employment Assistance Services — UMOM New Day Centers** — serves Maricopa County · addresses in Phoenix. Listed under: Homelessness.
 
-## Statewide programs under Housing & Homelessness, which also serve Maricopa County (1)
+## Statewide programs under Housing & Homelessness, which also serve Maricopa County (33)
 
+- **5 Ways to Prepare for Monsoon Season in Arizona — Salt River Project (SRP)** — statewide. Listed under: Emergency shelter, Eviction prevention.
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. Listed under: Eviction prevention.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention, Home renovation or repair, Home buying.
+- **AHCCCS Housing Program — HOM, Inc.** — statewide · (602) 296-6594. Listed under: Finding housing, Homelessness, Permanent supportive housing.
+- **Air Conditioning and Home Repairs — Habitat for Humanity - Central Arizona** — statewide · (602) 232-1089. Listed under: Home renovation or repair.
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Affordable housing programs, Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention, Rapid re-housing.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention, Home renovation or repair, Finding housing.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Axiom Care at Victory Place - General Resources** — statewide · (602) 825-2592. Listed under: Detox, Residential treatment, Homelessness, Transitional housing.
+- **AZEvictionHelp — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Eviction prevention.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Emergency shelter.
+- **BC Support Line — Be Connected** — statewide. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Community Action Agencies list in Arizona — Wildfire AZ** — statewide. Listed under: Eviction prevention.
+- **Corps Community Centers Phoenix Maryvale — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide. Listed under: Affordable housing programs, Homelessness, Emergency shelter.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Finding housing, Homelessness, Emergency shelter, Rapid re-housing.
+- **Free Arizona ID for Veterans — Homeless ID Project** — statewide · (602) 223-3427. Listed under: Homelessness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Homelessness, Emergency shelter.
 - **Homeless Services program — DES Division of Aging and Adult Services** — statewide · (602) 595-8700. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **Housing Stability Court Navigator Program — Arizona Supreme Court** — statewide · (928) 817-4174. Listed under: Eviction prevention.
+- **Mother's Grace** — statewide. Listed under: Eviction prevention.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: Finding housing, Homelessness.
+- **People’s Information Guide — Wildfire AZ** — statewide. Listed under: Eviction prevention, Emergency shelter.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Finding housing, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair, Home buying.
+- **Public Information Office — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Emergency shelter.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. Listed under: Homelessness, Emergency shelter.
+- **SSI/SSDI Outreach, Access, and Recovery (SOAR) — Substance Abuse and Mental Health Services Administration (SAMHSA)** — statewide. Listed under: Homelessness.
+- **Survivor Emergency Relief Fund (SERFund) — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Homelessness, Finding housing, Rapid re-housing.
+- **SVDP Home Visits — St Vincent de Paul of Phoenix** — statewide. Listed under: Eviction prevention.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Eviction prevention.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Homelessness, Eviction prevention.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Homelessness, Emergency shelter, Eviction prevention, Foreclosure prevention.
+- **Wildfire Safety — The American Red Cross** — statewide. Listed under: Emergency shelter, Homelessness.
 
 ## About this page
 

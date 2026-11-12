@@ -1,0 +1,115 @@
+# Be Connected Physical Health resources within 5 miles of 85701 (ZIP code 85701)
+
+## Within 5 miles of ZIP code 85701 (84)
+
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — about 0.4 miles from ZIP code 85701. 829 South 6th Avenue, Tucson 85701 · (520) 628-7837. Listed under: Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite C, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite B, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite B, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite 110, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — about 0.5 miles from ZIP code 85701. 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Arizona Trail Association VETS Program** — about 1.0 miles from ZIP code 85701. 738 N. 5th Avenue, #201, Tucson 85705 · (602) 252-4794. Listed under: Wellness.
+- **The Salvation Army Tucson South Corps Community Center** — about 1.1 miles from ZIP code 85701. 1625 S. 3rd Avenue, Tucson 85713 · (520) 620-1076. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — about 1.1 miles from ZIP code 85701. 1625 S. 3rd Avenue, Tucson 85713 · (520) 620-1076. Listed under: Wellness.
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — about 1.2 miles from ZIP code 85701. 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — about 1.2 miles from ZIP code 85701. 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — about 1.2 miles from ZIP code 85701. 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — about 1.3 miles from ZIP code 85701. Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Aging health issues, Wellness.
+- **The Salvation Army Tucson Social Services** — about 1.3 miles from ZIP code 85701. Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — about 1.3 miles from ZIP code 85701. Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Wellness.
+- **Client Services — Community Outreach Program for the Deaf** — about 1.7 miles from ZIP code 85701. 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: General health issues, Wellness.
+- **Interpreting Services — Community Outreach Program for the Deaf** — about 1.7 miles from ZIP code 85701. 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Traumatic Brain Injury, Wellness.
+- **Prenatal and Postpartum Depression Medical Examination and Medication — CODAC Health, Recovery, & Wellness, Inc.** — about 1.7 miles from ZIP code 85701. 502 N Silverbell Road, Tucson 85745 · (520) 202-1716. Listed under: Medication-assisted treatment, General health issues.
+- **Assistive Technology — Arizona State Schools for the Deaf and the Blind** — about 1.8 miles from ZIP code 85701. 1200 W. Speedway Blvd., Tucson 85745 · (520) 770-3863.
+- **Cooperative Services — Arizona State Schools for the Deaf and the Blind** — about 1.8 miles from ZIP code 85701. 1200 W Speedway Blvd, Tucson 85745. Listed under: Chronic disease, Wellness.
+- **Health Promotion & Gardening — Community Food Bank of Southern Arizona** — about 1.9 miles from ZIP code 85701. 2405 S Cottonwood Ln., Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Tucson Vet Center** — about 2.2 miles from ZIP code 85701. 2525 E. Broadway Blvd., Suite 100, Tucson 85716 · (520) 882-0333. Listed under: Wellness.
+- **MOVE! — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Weight management, Wellness.
+- **Community Living Center — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Aging health issues, Wellness.
+- **Contract Nursing Home Program — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness.
+- **Hemodialysis Unit (HDU) — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease.
+- **Laboratory — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness.
+- **Patient Health Education — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Death & dying, Aging health issues, Pain management/chronic pain, Wellness.
+- **Pharmacy — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Pain management/chronic pain, Wellness.
+- **Military Sexual Trauma (F) — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness.
+- **Women’s Health Care Program — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Women's General Care — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Specialty Care — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness, Chronic disease, General health issues, Death & dying.
+- **Women's Rehabilitation Care — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease, General health issues, Pain management/chronic pain, Wellness, Aging health issues.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness, Aging health issues, Chronic disease, Dental.
+- **Gastroenterology (GI) Services — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Spinal Cord Injury and Disorders Team — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Emergency Department — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues.
+- **Lesbian, Gay, Bisexual and Transgender Veteran Care — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness.
+- **Physical Medicine and Rehabilitation Services (PM&R) — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury, Aging health issues.
+- **Nutrition Clinic at the Tucson VA Medical Center — Southern Arizona VA Health Care System** — about 2.5 miles from ZIP code 85701. 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness, General health issues, Chronic disease.
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — about 2.5 miles from ZIP code 85701. 901 E. 46th Street, Tucson 85713 · (520) 792-5704. Listed under: Residential treatment, Wellness.
+- **Disaster Relief — American Red Cross - Southern Arizona** — about 2.5 miles from ZIP code 85701. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Wellness.
+- **Information Referral — American Red Cross - Southern Arizona** — about 2.5 miles from ZIP code 85701. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Traumatic Brain Injury, Wellness.
+- **Veteran Services — American Red Cross - Southern Arizona** — about 2.5 miles from ZIP code 85701. 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Aging health issues, Traumatic Brain Injury, Wellness.
+- **PCOA Katie Dusenberry Healthy Aging Center — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Wellness, Chronic disease, Pain management/chronic pain.
+- **One-on-One Caregiver Consultation — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Caregiver Training — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, General health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Long-Term Care - ALTCS Workshop — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Healthy Living Classes — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Weight management.
+- **Medicare — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — about 2.6 miles from ZIP code 85701. 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Cactus Bloom — CODAC Health, Recovery, & Wellness, Inc.** — about 2.6 miles from ZIP code 85701. 3130 E Broadway Blvd., Tucson 85716. Listed under: General health issues, Aging health issues.
+- **Primary Health Care (50+) — CODAC Health, Recovery, & Wellness, Inc.** — about 2.6 miles from ZIP code 85701. 3130 E Broadway Blvd., Tucson 85716. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Aging health issues, Wellness.
+- **Integrated Care — Living Out Loud: Health & Wellness Center** — about 2.6 miles from ZIP code 85701. 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: General health issues, Wellness.
+- **Primary Care — Living Out Loud: Health & Wellness Center** — about 2.6 miles from ZIP code 85701. 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain.
+- **Gender-Confirmation Services — Living Out Loud: Health & Wellness Center** — about 2.6 miles from ZIP code 85701. 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Partial hospitalization, General health issues, Wellness.
+- **Wellness — Living Out Loud: Health & Wellness Center** — about 2.6 miles from ZIP code 85701. 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Wellness.
+- **Child and Adolescent Wellness — Living Out Loud: Health & Wellness Center** — about 2.6 miles from ZIP code 85701. 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — about 2.7 miles from ZIP code 85701. 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — about 2.7 miles from ZIP code 85701. 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Medication-assisted treatment, Wellness.
+- **Peer Support Services — Community Medical Services** — about 2.7 miles from ZIP code 85701. 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Wellness.
+- **Navigation Services — HOPE, Incorporated** — about 3.0 miles from ZIP code 85701. 1200 N. Country Club, Tucson 85716. Listed under: General health issues, Wellness.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — about 3.0 miles from ZIP code 85701. 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Mental Health Outpatient Services — Family Involvement Center** — about 3.0 miles from ZIP code 85701. 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — about 3.0 miles from ZIP code 85701. 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Crisis Intervention, Advocacy, Information & Referral Services — Southern Arizona Center Against Sexual Assault** — about 3.1 miles from ZIP code 85701. 1600 N. Country Club, Tucson 85716 · (520) 327-1171. Listed under: Wellness, General health issues.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — about 3.4 miles from ZIP code 85701. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: General health issues, Wellness.
+- **Food Assistance Development Programs in Southern Arizona — Community Food Bank of Southern Arizona** — about 3.4 miles from ZIP code 85701. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Fresh Produce for the Public — Community Food Bank of Southern Arizona** — about 3.4 miles from ZIP code 85701. 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **The Salvation Army All Nations Corps Community Center — The Salvation Army Tucson** — about 3.4 miles from ZIP code 85701. 1001 N Richey Blvd, Tucson 85716 · (520) 795-4504. Listed under: Wellness.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — about 3.4 miles from ZIP code 85701. 2545 E. Ajo Way, Tucson 85713 · (520) 351-3888. Listed under: Wellness.
+- **Rape Aggression Defense (R.A.D.) courses — Pima County Sheriff's Department** — about 3.5 miles from ZIP code 85701. Main Headquarters, 1750 E. Benson Highway, Tucson 85714 · (520) 351-4600. Listed under: Wellness.
+- **El Rio OB/GYN — El Rio Community Health Center** — about 3.8 miles from ZIP code 85701. 225 W Irvington Rd, Tucson 85714 · (520) 670-3909. Listed under: Wellness.
+- **The Salvation Army Amphi Corps Community Center — The Salvation Army Tucson** — about 3.8 miles from ZIP code 85701. 218 E. Prince Road, Tucson 85705 · (520) 888-1299. Listed under: Wellness.
+- **Independent Living Services — Ability360** — about 3.8 miles from ZIP code 85701. 1001 N. Alvernon Way, Tucson 85711 · (520) 449-8375. Listed under: Wellness.
+- **Pima County Health Department Clinics Reopen** — about 3.8 miles from ZIP code 85701. 3550 N 1st Ave, Tucson 85719 · (520) 724-2850. Listed under: General health issues, Wellness, Chronic disease.
+- **Pet Adoptions — Humane Society of Southern Arizona** — about 4.3 miles from ZIP code 85701. 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **Veterinary Clinic Services — Humane Society of Southern Arizona** — about 4.3 miles from ZIP code 85701. 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **Animal Shelter Admissions Services — Humane Society of Southern Arizona** — about 4.3 miles from ZIP code 85701. 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness, Death & dying.
+- **HSSA Education Programs — Humane Society of Southern Arizona** — about 4.3 miles from ZIP code 85701. 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **HSSA Outreach Services — Humane Society of Southern Arizona** — about 4.3 miles from ZIP code 85701. 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+
+## The next nearest, between 5 and 25 miles of ZIP code 85701 (20 of 37 shown)
+
+- **In-Home Care — Arizona’s Choice Home Care Solutions LLC** — about 5.2 miles from ZIP code 85701. 5151 E Broadway Blvd, Tucson 85711 · (520) 900-8757. Listed under: Aging health issues.
+- **Support Groups — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Support Groups (Autism) — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Men to Men Support Group — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Respite Care — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Living Skills — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Youth Council — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Family Support — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Youth Services — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Training Programs — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transition Age Youth Program — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Wellness Program — MIKID** — about 5.3 miles from ZIP code 85701. 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Hospice & Palliative Care — Agape Hospice and Palliative Care** — about 5.6 miles from ZIP code 85701. 2980 N Swan Rd. Ste. 222, Tucson 85712. Listed under: Death & dying.
+- **Veterans Program — TMC Hospice** — about 5.7 miles from ZIP code 85701. Peppi's House - TMC Hospice, 2715 N Wyatt Dr, Tucson 85712 · (520) 324-2438. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **(STOP) Sober Truth On Preventing Underage Drinking — Child & Family Resources** — about 5.7 miles from ZIP code 85701. Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — about 5.7 miles from ZIP code 85701. Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **Guy Talk — Child & Family Resources** — about 5.7 miles from ZIP code 85701. Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **Whiteriver Indian Hospital — Phoenix Area Indian Health Service (PAIHS)** — about 7.4 miles from ZIP code 85701. 200 W Hospital Dr, Whiteriver 85941 · (928) 338-4911. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Dog Training — Handi Dogs** — about 7.9 miles from ZIP code 85701. 75 S. Montego Drive, Tucson 85710. Listed under: General health issues.
+
+## About this page
+
+This page lists what is near ZIP code 85701, and only that ZIP code. Distances run from the middle of ZIP code 85701 to the program's nearest address, so near the edge of a ZIP code they can be off by a mile or two. They apply only to a question that names ZIP code 85701. A program with several addresses is listed once, at its nearest. 651 programs in this directory have no street address and are not on this page. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

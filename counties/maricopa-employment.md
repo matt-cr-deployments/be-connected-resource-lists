@@ -1,10 +1,209 @@
 # Employment in Maricopa County: Be Connected resources
 
-## Listed as serving Maricopa County under Employment (3)
+## Listed as serving Maricopa County under Employment (143)
 
+- **161st Air Refueling Wing Airman & Family Readiness Program — 161st Air Refueling Wing - Arizona Air National Guard** — serves Maricopa County · (602) 302-9393 · addresses in Phoenix. 
+- **24 Hour Senior Helpline — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County. 
+- **ACHIEVE Enterprise Services (AES) — ACHIEVE Human Services** — serves Maricopa County · (928) 341-4141 · addresses in Yuma. 
+- **Affinity Benefits — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Agua Fria Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Anasazi Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Arizona National Guard Family Programs — Arizona Army National Guard** — serves Maricopa County · (800) 233-7758 · addresses in Phoenix. 
+- **Arizona Women’s Education and Entrepreneur Center — Arizona Women's Education and Employment, Inc.** — serves Maricopa County · (602) 223-4329. Listed under: Self-employment/small business.
+- **ARIZONA@WORK Maricopa County | Access Point — City of Surprise** — serves Maricopa County · (623) 222-1630 · addresses in Surprise. 
+- **Arts in Service — Mesa Arts Center** — serves Maricopa County · (480) 644-6500 · addresses in Mesa. 
+- **Assertive Community Treatment (ACT) — Community Bridges, Inc.** — serves Maricopa County · (877) 931-9142 · addresses in Mesa. 
+- **Asthon Sosi Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **ASU Center: Mindfulness, Compassion and Resilience — Arizona State University (ASU)** — serves Maricopa County · (602) 496-1579. 
+- **ASU's AZNext Program — Arizona State University (ASU)** — serves Maricopa County. 
+- **Avondale - AmeriCorps Volunteers — City of Avondale** — serves Maricopa County · (623) 333-1000 · addresses in Avondale. 
+- **Avondale Citizen Leadership Academy — Avondale Neighborhood & Family Services Department** — serves Maricopa County. 
+- **Avondale Community Action Program — City of Avondale** — serves Maricopa County · (623) 333-2707 · addresses in Avondale. 
+- **AZ Complete Health Avondale Resource Center — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2703 · addresses in Avondale. 
+- **BankWork$ — Arizona Women's Education and Employment, Inc.** — serves Maricopa County · (602) 601-7215 · addresses in Phoenix. 
+- **Buckeye Valley Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Cable Harness Wiring Class — AzAMI - Arizona Advanced Manufacturing Institute** — serves Maricopa County · (480) 461-7216 · addresses in Mesa. 
+- **Cactus Wren Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Camelback Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **CARE 7 - Veteran Services — City of Tempe** — serves Maricopa County · (480) 858-2388 · addresses in Tempe. 
+- **CARE 7 - Victim Assistance — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. 
+- **CARE 7 Internship Opportunities — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — serves Maricopa County · (602) 535-4444 · addresses in Glendale, Goodyear, Mesa, Phoenix, Scottsdale, Tempe. 
+- **Career Ladders Achieving Success and Security - C.L.A.S.S. — Arizona Women's Education and Employment, Inc.** — serves Maricopa County · (602) 601-7215 · addresses in Phoenix. 
+- **Caregiver Apprenticeship program — Careworks AZ** — serves Maricopa County · (602) 603-8200 · addresses in Avondale. 
+- **Case Management — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. 
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Maricopa County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Maricopa County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient.
+- **CBI Women & Children Programs — Community Bridges, Inc.** — serves Maricopa County · (480) 461-1711 · addresses in Mesa. 
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Maricopa County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment.
+- **Certification Training — Southwest Building Science Training Center (SWBSTC)** — serves Maricopa County · (602) 532-2976 · addresses in Phoenix. 
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — serves Maricopa County · (602) 688-6211 · addresses in Phoenix. 
+- **Charles Trumbull Hayden Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. 
+- **Cisco Certified Network Associate (CCNA) Program — TTY Career College** — serves Maricopa County · (602) 343-1500 · addresses in Phoenix. 
+- **Comp TIA Network+ Certification — TTY Career College** — serves Maricopa County · (602) 343-1500 · addresses in Phoenix. 
+- **Construction in Training (CIT) Program — Habitat for Humanity - Central Arizona** — serves Maricopa County · (623) 583-2417 · addresses in Peoria. 
+- **Copper State Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Counseling Services — Mesa Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. Listed under: Job search preparation (resume writing, interviewing), Job search skills, Career development.
+- **CRAS Veterans — Conservatory of Recording Arts and Sciences (CRAS)** — serves Maricopa County · (480) 858-0764 · addresses in Gilbert, Tempe. 
+- **CS50: Introduction to Computer Science with HARVARD UNIVERSITY — Warriors Code Inc.** — serves Maricopa County · (602) 653-3022 · addresses in Phoenix. 
+- **Day Treatment for Adults diagnosed with SMI — Southwest Behavioral & Health Services** — serves Maricopa County · (602) 234-3338 · addresses in AZ. Listed under: Medication-assisted treatment.
+- **DreamBuilder: The Women’s Business Creator** — serves Maricopa County · (602) 601-7200 · addresses in Phoenix, Prescott, Tucson. 
+- **Employment Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. 
+- **Employment Services — Operation Welcome Home** — serves Maricopa County. 
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — serves Maricopa County · (602) 534-2433 · addresses in Phoenix. 
+- **Farmworker Law Program — Community Legal Services** — serves Maricopa County. 
+- **Find Help Phoenix (FHP) — Maricopa County Department of Public Health (MCDPH)** — serves Maricopa County. 
+- **Fire Prevention Division — Phoenix Fire Department** — serves Maricopa County · (602) 262-6297 · addresses in Phoenix. 
+- **Forensic Assertive Community Treatment (FACT) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Residential treatment.
+- **Four Peaks Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Gila Butte Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Glendale Works — Phoenix Rescue Mission** — serves Maricopa County · (623) 930-3590 · addresses in Glendale. 
+- **Governor George W.P. Hunt Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Grand Canyon Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Healing of Memories Workshops & Facilitator Training — Spirit in the Desert** — serves Maricopa County · (480) 488-5218 · addresses in Carefree. 
+- **Helping Women & Families Thrive — Hope Women's Center** — serves Maricopa County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. 
+- **Housing & Community Development — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2705 · addresses in Avondale. 
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. 
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — serves Maricopa County · addresses in Phoenix. 
+- **IL Skills Training — Ability360** — serves Maricopa County · addresses in Phoenix. 
+- **Independent Living Services — Ability360** — serves Maricopa County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. 
+- **Job Club for Veterans — City of Surprise** — serves Maricopa County · addresses in Surprise. 
+- **Luke Airman and Family Readiness Center — Luke Air Force Base** — serves Maricopa County. 
+- **Major Winfield Scott Chapter- Daughters of the American Revolution** — serves Maricopa County. 
 - **MANA House — Catholic Charities MANA House** — serves Maricopa County · (602) 254-6785 · addresses in Phoenix. 
+- **Maricopa Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Mass Deployments — The Mission Continues** — serves Maricopa County. 
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Maricopa County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. 
+- **Mesa Junior Chamber of Commerce — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Mesa Leadership Program — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Mesa Vet Center — Tucson Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. 
+- **Mesa Veterans Program — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Mesa Young Professionals — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Military and Veteran Success Center (MVSC) — Rio Salado College** — serves Maricopa County · (480) 377-4150 · addresses in Tempe. 
+- **Mobile Outreach — Catholic Charities MANA House** — serves Maricopa County · (602) 254-6785 · addresses in Phoenix. 
+- **MVRC Event Calendar — Mesa Veterans Resource Center** — serves Maricopa County · (480) 834-2105 · addresses in Mesa. 
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — serves Maricopa County · (602) 535-4444 · addresses in Flagstaff, Lake Havasu City, Peoria, Phoenix, Prescott, Yuma. 
+- **Networking Groups — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **North Star Youth Partnership — Catholic Charities Community Services** — serves Maricopa County · (928) 708-7214 · addresses in Prescott. 
+- **Ocotillo Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Office of Small & Disadvantaged Business Utilization — U.S. Department of Veterans Affairs** — serves Maricopa County. 
+- **One-Stop — ARIZONA@WORK Maricopa County** — serves Maricopa County · (602) 372-4200 · addresses in Gilbert, Glendale, Phoenix, esa. 
+- **Online Training for Faculty, Staff and Management — Arizona Private School Association** — serves Maricopa County. 
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — serves Maricopa County · (844) 691-5948 · addresses in Phoenix. Listed under: Detox, Medication-assisted treatment.
+- **Peoria Community Center — City of Peoria** — serves Maricopa County · (623) 773-7436 · addresses in Peoria. 
+- **Phoenix Vet Center — Tucson Vet Center** — serves Maricopa County · (602) 640-2981 · addresses in Phoenix. 
+- **Piestewa Peak Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Project DreamCatcher — Thunderbird School of Global Management** — serves Maricopa County · (602) 496-7000 · addresses in Phoenix. 
+- **Reducing Homelessness in Mesa — City of Mesa** — serves Maricopa County · (480) 644-3000 · addresses in Mesa. 
+- **Relieving Hunger — Paz de Cristo** — serves Maricopa County · (480) 464-2370 · addresses in Mesa. 
+- **Revitalization — Avondale Neighborhood & Family Services Department** — serves Maricopa County · addresses in Avondale. 
+- **Saguaro Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **SAIL Program (Steps to Achieve Independent Living) — Marc Community Resources** — serves Maricopa County. 
+- **Save the Family Career Development Center** — serves Maricopa County · (480) 898-0228 · addresses in Mesa. 
+- **Scottsdale Works – Brick by Brick — City of Scottsdale** — serves Maricopa County · (480) 312-0108 · addresses in Scottsdale. 
+- **Serious Mental Illness (SMI) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Detox, Residential treatment, Medication-assisted treatment.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — serves Maricopa County · (602) 248-6040 · addresses in Phoenix. Listed under: Detox, Residential treatment, Medication-assisted treatment.
+- **Serving Those Who Have Served — Southwest Truck Driver Training, Inc.** — serves Maricopa County · (833) 234-3848 · addresses in Phoenix. 
+- **Smart Justice Program — ARIZONA@WORK Maricopa County** — serves Maricopa County · (602) 372-4200 · addresses in Gilbert, Phoenix. 
+- **SOAR (Surprise Applicant Online Recruiting) — City of Surprise** — serves Maricopa County. 
+- **Solari Warm Line (Peer Support) — Solari, Inc.** — serves Maricopa County · (602) 347-1100. 
+- **SRPMIC Veterans Representative Office — Salt River Pima - Maricopa Indian Community (SRPMIC)** — serves Maricopa County · (480) 362-7884 · addresses in Scottsdale. 
+- **St. Mary’s Community Kitchen — St. Mary's Food Bank** — serves Maricopa County · addresses in Phoenix. 
+- **Success With Home Performance training — Southwest Building Science Training Center (SWBSTC)** — serves Maricopa County · (602) 532-2976 · addresses in Phoenix. 
+- **Supported Employment Services — Mercy Care** — serves Maricopa County. 
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. 
+- **SVDP Exiting Homelessness — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. 
 - **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. 
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. 
+- **TCAA's Financial Success Center — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 422-8922 · addresses in Tempe. 
+- **TCAA's Oasis Drop-In Center — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 590-5514 · addresses in Tempe. 
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 685-3208 · addresses in Phoenix. 
+- **The Salvation Army Kroc Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 276-7396 · addresses in Phoenix. 
+- **The ‘Bridge’ Emergency Shelter For Men — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa. Listed under: Detox, Inpatient, Medication-assisted treatment.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — serves Maricopa County · (602) 346-3384 · addresses in Phoenix. 
+- **Transition Age Youth Program — MIKID** — serves Maricopa County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. 
+- **Veteran & Military Assistance — Southwest Institute of Healing Arts** — serves Maricopa County · (888) 504-9106 · addresses in Tempe. 
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. 
+- **Veterans Affairs Office — Tohono O’odham Nation** — serves Maricopa County · addresses in Sells. 
+- **Veterans Benefits Assistance & Resources — Veterans Affinity** — serves Maricopa County. 
+- **Veterans Furniture Project — Bridging AZ** — serves Maricopa County · (480) 833-3997 · addresses in Mesa. 
+- **Warriors Code Adult Programs — Warriors Code Inc.** — serves Maricopa County · (602) 653-3022 · addresses in Phoenix. 
+- **Warriors Code Youth workshops — Warriors Code Inc.** — serves Maricopa County · (602) 653-3022 · addresses in Phoenix. 
+- **WCSC Veterans Support Office — Wickenburg Community Services Corporation** — serves Maricopa County · (602) 810-1356 · addresses in Wickenburg. 
+- **Weatherization — Southwest Building Science Training Center (SWBSTC)** — serves Maricopa County · (602) 532-2976 · addresses in Phoenix. 
+- **West Valley Vet Center - Phoenix** — serves Maricopa County · (623) 398-8854 · addresses in Peoria. 
+- **West Valley Veteran Success Center — Surprise Resource Center** — serves Maricopa County · addresses in Surprise. 
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — serves Maricopa County · (623) 247-1234 · addresses in Phoenix. Listed under: Intensive outpatient (IOP), Medication-assisted treatment.
+- **White Tank Mountains Chapter- Daughters of the American Revolution** — serves Maricopa County. 
+- **Wickenburg Low-Income Assistance — Town of Wickenburg** — serves Maricopa County · (928) 684-7894 · addresses in Wickenburg. 
+- **Wickenburg Public Library and Learning Center — Town of Wickenburg** — serves Maricopa County · (928) 684-2665 · addresses in Wickenburg. 
+- **Womens Business Connection — Mesa Chamber of Commerce** — serves Maricopa County. 
+- **Work Adjustment Training — ACHIEVE Human Services** — serves Maricopa County · (928) 341-0335 · addresses in Yuma. 
+- **Workforce Development - Career Services — U.S. VETS - Phoenix** — serves Maricopa County · addresses in Phoenix. 
+- **Workforce/Employment Assistance Services — UMOM New Day Centers** — serves Maricopa County · addresses in Phoenix. 
+- **Youth Center — Luke Air Force Base** — serves Maricopa County. 
+- **Youth Services & Community Engagement — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2705 · addresses in Avondale. 
+- **Youth Workforce Program — ARIZONA@WORK Maricopa County** — serves Maricopa County · (623) 882-9106 · addresses in Avondale, Mesa, Peoria, Tempe. 
+
+## Statewide programs under Employment, which also serve Maricopa County (56)
+
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. 
+- **Advocacy and Public Policy — Alliance of Arizona Nonprofits** — statewide. 
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. 
+- **ADVS Veteran Toolkit Program — Arizona Department of Veterans' Services (ADVS)** — statewide. 
+- **Alliance - AmeriCorps VISTA — Alliance of Arizona Nonprofits** — statewide · (602) 279-2966. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. 
+- **Annual Conference — Alliance of Arizona Nonprofits** — statewide. 
+- **ARIZONA Career Readiness Credential (ACRC) — ARIZONA@WORK** — statewide · (502) 509-3555. 
+- **Arizona Chamber Foundation — The Arizona Chamber of Commerce & Industry** — statewide · (602) 248-9172. 
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. 
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. 
+- **Arizona Gives Day — Alliance of Arizona Nonprofits** — statewide · (602) 279-2966. 
+- **Arizona Industries for the Blind — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 771-9100. 
+- **Arizona Manufacturers Council — The Arizona Chamber of Commerce & Industry** — statewide · (602) 248-9172. Listed under: Career development.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. 
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. 
+- **AZCourtHelp Initiative - Arizona Supreme Court** — statewide. 
+- **AZHiresVets! — State of Arizona** — statewide. 
+- **AZPOINT - Arizona Protective Order Initiation and Notification Tool — Arizona Supreme Court** — statewide. 
+- **BC for Employers-Career Navigation Services — Be Connected** — statewide. 
+- **BC Support Line — Be Connected** — statewide. 
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. 
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. 
+- **Business on Board — Alliance of Arizona Nonprofits** — statewide. 
+- **Career Pathways — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **Certified Higher Education Professional (CHEP) credential — Alliance of Arizona Nonprofits** — statewide. 
+- **Chamber Business News — The Arizona Chamber of Commerce & Industry** — statewide. 
+- **Coaching & Mentoring — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **Comp TI A+ Certification — TTY Career College** — statewide · (602) 343-1500. 
+- **Comp TIA Security+ Program — TTY Career College** — statewide · (602) 343-1500. 
+- **Culinary Degree Program — Arizona Culinary Institute** — statewide. 
+- **DES Business Enterprise Program (BEP) — DES Division of Employment & Rehabilitation Services** — statewide. 
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. 
+- **Fundamentals of Healthcare for Veterans Certification — Arizona State University (ASU)** — statewide. 
+- **Growing Better Together — Alliance of Arizona Nonprofits** — statewide. 
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. 
+- **Hiring Events — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. 
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. 
+- **Project Best — Child & Family Resources** — statewide · (520) 881-8940. 
+- **Robert Noyce Teacher Scholars Program — Arizona State University (ASU)** — statewide. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — statewide · (602) 241-6186. 
+- **Service Corps of Retired Executives — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7200. 
+- **Service Dog (SD) Certification Program — The Foundation for Service Dog Support, Inc.** — statewide. 
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. 
+- **Services for Business Owners — Arizona Department of State** — statewide. 
+- **SheLEADS — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. 
+- **Troops to Educators program (TTE) — Arizona Department of Education** — statewide · (602) 542-4367. 
+- **Veteran Women Igniting the Spirit of Entrepreneurship — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Veterans Business Outreach Center (VBOC) — U.S. Small Business Administration (SBA)** — statewide · (480) 322-4634. 
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. 
+- **Women's Business Ownership Representative — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Youth Sports Official Training — Protect The Game** — statewide. 
 
 ## About this page
 

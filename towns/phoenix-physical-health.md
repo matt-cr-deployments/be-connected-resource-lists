@@ -1,0 +1,237 @@
+# Physical Health: Be Connected resources in Phoenix, Arizona
+
+- **24 Hour Live-In Assistance — Adultcare Assistance Homecare** — in Phoenix: 1616 E Indian School Rd, Suite 450, Phoenix 85016 · (602) 455-1118. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Ability360 Center** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury.
+- **Ability360 Sports & Fitness Center** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **ACTIVATE program & ACTIVATE Kindness Closet — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Wellness.
+- **Acupuncture and Alternative Therapies — Supreme Acupuncture, LLC** — in Phoenix: 3040 N 44th St, Suite 3, Phoenix 85018 · (602) 730-4332. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Sleep, Weight management.
+- **Addiction Treatment During Pregnancy — Intensive Treatment Systems** — in Phoenix: North Clinic, 19401 N Cave Creek Rd, #18, Phoenix 85024 · (602) 996-0099. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Addiction Treatment During Pregnancy — Intensive Treatment Systems** — in Phoenix: 651 W Coolidge Street, Phoenix 85013 · (602) 248-0550. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Addiction Treatment During Pregnancy — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Adult Behavioral Health Therapeutic Home Program (ABHTH) — AllThrive365** — in Phoenix: 1201 E Thomas Road, Phoenix 85014 · (602) 603-4174. Listed under: Aging health issues, General health issues, Wellness.
+- **Adult Day Health Services - Engagement & Wellness Centers for Adults of Any Age — AllThrive365** — in Phoenix: 3620 North 4th Ave, Phoenix 85013 · (602) 297-1840. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Adult Foster Care — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — in Phoenix: 3839 N 3rd Street, Phoenix 85012. Listed under: Wellness.
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — in Phoenix: 5025 E. Washington Street, Suite 102, Phoenix 85034 · (480) 455-3957. Listed under: Chronic disease, Wellness.
+- **Arizona Military Honors — Arizona Army National Guard** — in Phoenix: 5636 E. McDowell Rd. M5340, Phoenix 85008 · (602) 629-4361. Listed under: Death & dying.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — in Phoenix: 3131 W. Thomas Road, Phoenix 85017. Listed under: Wellness.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Art Workshop at Arizona Artists Guild — Your Art Your Story** — in Phoenix: 18411 N. 7th Avenue, Phoenix 85023. Listed under: General health issues, Death & dying, Wellness.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Wellness.
+- **Assistive Technology — Arizona State Schools for the Deaf and the Blind** — in Phoenix: 800 W. Washington St. Suite 539, Phoenix 85007 · (520) 770-3863. 
+- **Audiology Hearing Aid Repair Walk-in Clinic — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: General health issues, Aging health issues.
+- **Audiology — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: General health issues, Aging health issues.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — in Phoenix: 5025 East Washington Street, Suite 108, Phoenix 85034 · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — in Phoenix: 5025 East Washington Street, Suite 108, Phoenix 85034 · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Cancer Prevention & Control Programs — Arizona Department of Health Services** — in Phoenix: 150 N. 18th Ave. Suite 300, Phoenix 85007 · (602) 364-0214. Listed under: Chronic disease, Death & dying.
+- **Cancer Program — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Chronic disease.
+- **Care By Design Coordination Services — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: General health issues.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. Listed under: General health issues.
+- **CATCH Program — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Aging health issues, Chronic disease, Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1125 W. Jackson St., Phoenix 85007 · (844) 691-5948. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Rooms A, B, D, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — in Phoenix: 338 N 15th Ave., Phoenix 85007 · (602) 688-6211. Listed under: Wellness.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. Listed under: General health issues.
+- **Child Safety Seats — Phoenix Fire Department** — in Phoenix: 3210 W. Canotia Place, Phoenix 85086 · (602) 495-5437. Listed under: Wellness.
+- **Child Safety Seats — Phoenix Fire Department** — in Phoenix: 7620 S. 42nd Place, Phoenix 85042 · (602) 495-5437. Listed under: Wellness.
+- **Child Safety Seats — Phoenix Fire Department** — in Phoenix: 9820 W. Campbell Ave., Phoenix 85037 · (602) 495-5437. Listed under: Wellness.
+- **Child Safety Seats — Phoenix Fire Department** — in Phoenix: 1935 E. Indian School Rd., Phoenix 85016 · (602) 495-5437. Listed under: Wellness.
+- **Children’s Developmental Center — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: General health issues, Wellness.
+- **Clinical Services — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness, Dental.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — in Phoenix: 1366 E. Thomas Rd., Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Wellness.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — in Phoenix: 2700 N. Central Ave, Suite 1100, Phoenix 85004 · (602) 279-2900. Listed under: Wellness.
+- **Community Living Center — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Aging health issues.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — in Phoenix: 6850 W. Indian School Rd, Suite 4, Phoenix 85033 · (602) 248-0428. Listed under: Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Crisis Prevention/Intervention — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Pain management/chronic pain, Chronic disease, Traumatic Brain Injury, Wellness.
+- **Dementia Care Programs — Hospice of the Valley** — in Phoenix: Inpatient Care, 1522 W. Myrtle Ave., Phoenix 85021 · (602) 995-9323. Listed under: Aging health issues, Wellness.
+- **Dementia Care Programs — Hospice of the Valley** — in Phoenix: 3811 N. 44th St., Phoenix 85018 · (602) 636-6363. Listed under: Aging health issues, Wellness.
+- **Developmental Assessments — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: General health issues, Wellness.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Wellness.
+- **Disease Integration & Services — Arizona Department of Health Services** — in Phoenix: 150 N. 18th Avenue, Suite 110, Phoenix 85007 · (602) 364-4571. Listed under: General health issues, Chronic disease.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004 · (602) 258-4822. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004 · (602) 258-4822. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Empowering Family Caregivers Educational Series — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Aging health issues, Wellness.
+- **Family Support — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Wellness.
+- **Feeding Program — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: General health issues, Wellness.
+- **Fire Prevention Division — Phoenix Fire Department** — in Phoenix: 150 S 12th St., Phoenix 85034 · (602) 262-6297. Listed under: Wellness.
+- **Food & Nutrition Program — Black Family and Child Services of Arizona** — in Phoenix: 1522 East Southern Avenue, Phoenix 85040 · (602) 243-1773. Listed under: Wellness.
+- **FSL Caregiver House — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Wellness, Aging health issues.
+- **Good Fit Counseling Center — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: General health issues, Wellness, Sleep.
+- **Group/Individual/Family Counseling — Intensive Treatment Systems** — in Phoenix: North Clinic, 19401 N Cave Creek Rd, #18, Phoenix 85024 · (602) 996-0099. Listed under: Wellness.
+- **Group/Individual/Family Counseling — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Wellness.
+- **Group/Individual/Family Counseling — Intensive Treatment Systems** — in Phoenix: 651 W Coolidge Street, Phoenix 85013 · (602) 248-0550. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Bank - Maryvale** — in Phoenix: 4002 N. 67th Avenue, Phoenix 85033. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Bank - Phoenix** — in Phoenix: 4744 E Thunderbird Rd, Suite 9, Phoenix 85032. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Donations** — in Phoenix: 4744 E Thunderbird Rd, Suite 9, Phoenix 85032. Listed under: Wellness.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 333 W. Indian School Rd., Phoenix 85013 · (602) 776-9000. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Healthy Babies — Arizona Department of Health Services** — in Phoenix: 150 North 18th Avenue, Phoenix 85007 · (602) 542-1025. Listed under: Wellness.
+- **Helping Women & Families Thrive — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: General health issues, Wellness.
+- **Home Care Services — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: Aging health issues, Wellness, Death & dying, General health issues.
+- **Hope Coach Mobile Outreach — Phoenix Rescue Mission** — in Phoenix: 1540 W. Van Buren St., Phoenix 85007 · (602) 233-3000. Listed under: Wellness.
+- **Hope ROSES Program for Pregnant Moms & Moms of Newborns — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Wellness.
+- **Hospice Care & More Programs — Hospice of the Valley** — in Phoenix: Inpatient Care, 110 W. Muhammad Ali Way, Phoenix 85013 · (602) 234-6750. Listed under: Residential treatment, Aging health issues, Chronic disease, Wellness.
+- **Hospice Care & More Programs — Hospice of the Valley** — in Phoenix: 3811 N. 44th St., Phoenix 85018 · (602) 636-6363. Listed under: Residential treatment, Aging health issues, Chronic disease, Wellness.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: General health issues, Aging health issues, Chronic disease, Dental, Wellness.
+- **Hygiene Kits for those in need — Shoebox Ministry** — in Phoenix: 13645 N. 32nd Street, Phoenix 85032 · (480) 905-1610. Listed under: Wellness.
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: General health issues, Wellness.
+- **IL Skills Training — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: General health issues, Wellness.
+- **Independent Living Services — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: Wellness.
+- **Independent Living Services — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Wellness.
+- **Independent Living Services — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Wellness, Aging health issues.
+- **Individual Therapy & Group Counseling — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Medication-assisted treatment, Pain management/chronic pain, Traumatic Brain Injury, Wellness, Sleep.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Wellness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 333 W. Indian School Rd., Phoenix 85013 · (602) 776-9000. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 210 S. 12th Ave., Phoenix 85007 · (602) 254-4282. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **ITS Intensive Outpatient Program (IOP) — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Detox, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **ITS Intensive Outpatient Program (IOP) — Intensive Treatment Systems** — in Phoenix: North Clinic, 19401 N Cave Creek Rd, #18, Phoenix 85024 · (602) 996-0099. Listed under: Detox, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **ITS Intensive Outpatient Program (IOP) — Intensive Treatment Systems** — in Phoenix: 651 W Coolidge Street, Phoenix 85013 · (602) 248-0550. Listed under: Detox, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Laboratory-Outpatient — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: General health issues, Wellness.
+- **Laboratory-Outpatient — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave, Phoenix 85021 · (602) 633-6900. Listed under: General health issues, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014-5739 · (602) 264-2255. Listed under: Aging health issues, Death & dying.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004-1448 · (602) 258-4822. Listed under: Aging health issues, Death & dying.
+- **Living Skills — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Living Well with a Disability — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: General health issues, Wellness.
+- **Maricopa County Environmental Services Vector Control Division** — in Phoenix: 3220 W Gibson Lane, Suite 500, Phoenix 85009 · (602) 506-0700. Listed under: Wellness.
+- **Medical Loan Closet — Paralyzed Veterans of America Arizona Chapter** — in Phoenix: 1001 E Fairmount Ave., Phoenix 85014 · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Phoenix: 2301 W. Northern Ave., Phoenix 85021 · (602) 866-9378. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Phoenix: 3825 N. 24th St., Phoenix 85016 · (602) 955-7997. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Phoenix: 4527 N. 27th Ave., Phoenix 85017 · (602) 775-5655. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Phoenix: 7830 N. 23rd Ave., Phoenix 85021 · (602) 775-5634. Listed under: Medication-assisted treatment, Wellness.
+- **Men to Men Support Group — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Mental Health Outpatient Services — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Wellness.
+- **Mental Health Services — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Medication-assisted treatment, General health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep, Traumatic Brain Injury.
+- **Mercy Care Advantage Wellness — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Aging health issues, Chronic disease, General health issues, Wellness.
+- **Military Access Pass — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: General health issues, Wellness.
+- **Miss Mary's Closet — Black Family and Child Services of Arizona** — in Phoenix: 1522 East Southern Avenue, Phoenix 85040 · (602) 243-1773. Listed under: Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 1124 N 3rd St, Phoenix 85004. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 3333 East Van Buren Street, Phoenix 85008. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 420 W. Watkins Rd., Phoenix 85003. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Mobile Outreach — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Wellness.
+- **Neuropsychology — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Wellness, Traumatic Brain Injury.
+- **Nutrition, Hospitality & Food Services — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Wellness, Weight management.
+- **Nutrition, Hospitality & Food Services — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave, Phoenix 85021 · (602) 633-6900. Listed under: Wellness, Weight management.
+- **Office of Environmental Health — Arizona Department of Health Services** — in Phoenix: 150 N. 18th Avenue, Suite 140, Phoenix 85007 · (602) 364-3118. Listed under: Chronic disease, Wellness.
+- **Operation Healing Journey (OHJ) — Honor House** — in Phoenix: Unavailable, Phoenix 85021. Listed under: General health issues, Pain management/chronic pain, Chronic disease, Sleep, Traumatic Brain Injury, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — in Phoenix: 1424 S. 7th Avenue, Bldg. C, Phoenix 85007 · (602) 258-3600. Listed under: Medication-assisted treatment, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — in Phoenix: 4420 South 32nd Street, Phoenix 85040 · (602) 268-8748. Listed under: Medication-assisted treatment, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — in Phoenix: 2632 E. Thomas Road, #100, Phoenix 85016 · (602) 957-2507. Listed under: Medication-assisted treatment, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — in Phoenix: 11221 North 28th Drive, Building E, Phoenix 85029 · (602) 997-2233. Listed under: Medication-assisted treatment, Wellness.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Wellness.
+- **Parent Partners Plus — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: Wellness.
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (844) 691-5948. Listed under: Detox, Medication-assisted treatment, General health issues.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Peer Support Services — Community Medical Services** — in Phoenix: 2301 W. Northern Ave., Phoenix 85021 · (602) 866-9378. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Phoenix: 4527 N. 27th Ave., Phoenix 85017 · (602) 775-5655. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Phoenix: 7830 N. 23rd Ave., Phoenix 85021 · (602) 775-5634. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Phoenix: 3825 N. 24th St., Phoenix 85016 · (602) 955-7997. Listed under: Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Rooms A, B, D, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Phoenix: 1125 W. Jackson St., Phoenix 85007 · (844) 691-5948. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Phoenix 32nd Street VA Clinic — Phoenix VA Health Care System** — in Phoenix: 400 N. 32nd Street, Phoenix 85008 · (602) 914-2900. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Phoenix FD Community Outreach — Phoenix Fire Department** — in Phoenix: 150 S 12th St., Phoenix 85034 · (602) 262-6297. Listed under: Wellness.
+- **Phoenix Silvercrest Senior Citizens' Residence & Laura Danieli Senior Activity Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Aging health issues, Wellness.
+- **Phoenix Vet Center — Tucson Vet Center** — in Phoenix: 4020 North 20th Street, Suite 110, Phoenix 85016 · (602) 640-2981. Listed under: Wellness.
+- **PIMC Dental Clinic — Phoenix Indian Medical Center (PIMC)** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: Dental.
+- **PIMC Eye Department — Phoenix Indian Medical Center (PIMC)** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **PIMC Pharmacy — Phoenix Indian Medical Center (PIMC)** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Phoenix: 2301 W. Northern Ave., Phoenix 85021 · (602) 866-9378. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Phoenix: 3825 N. 24th St., Phoenix 85016 · (602) 955-7997. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Phoenix: 4527 N. 27th Ave., Phoenix 85017 · (602) 775-5655. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Phoenix: 7830 N. 23rd Ave., Phoenix 85021 · (602) 775-5634. Listed under: Medication-assisted treatment, Wellness.
+- **Primary Care (F) — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: General health issues, Wellness, Aging health issues.
+- **Public Benefits Outreach Program (PBO) — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Wellness, Aging health issues.
+- **PVAHCS Dental Service — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Dental.
+- **PVAHCS Pharmacy — Phoenix VA Health Care System** — in Phoenix: 650 E Indian School Rd, Phoenix 85012 · (602) 222-6550. Listed under: General health issues, Pain management/chronic pain, Chronic disease, Wellness.
+- **Recreation Therapy — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Wellness.
+- **Recreation Therapy — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave, Phoenix 85021 · (602) 633-6900. Listed under: Wellness.
+- **Respite Care — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Senior Home Care — Adultcare Assistance Homecare** — in Phoenix: 1616 E Indian School Rd, Suite 450, Phoenix 85016 · (602) 455-1118. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior Nutrition Services — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Wellness, Aging health issues.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — in Phoenix: 1500 East Thomas Rd., Suite 106, Phoenix 85014 · (602) 248-6040. Listed under: Detox, Residential treatment, Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Sexual Assault Prevention and Response — 161st Air Refueling Wing - Arizona Air National Guard** — in Phoenix: 3200 E Old Tower Rd, Phoenix 85034 · (602) 302-9393. Listed under: Wellness.
+- **Smooth Way Home Fragile Infant Project — Southwest Human Development** — in Phoenix: 2850 N. 24th Street, Phoenix 85008. Listed under: Wellness.
+- **Suicide Prevention — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021. Listed under: Wellness.
+- **Supai Canyon Health Station (SHS) — Colorado River Service Unit (CRSU) - Parker Indian Health Center** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **Support Groups (Autism) — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Support Groups — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (928) 344-1983. Listed under: Wellness.
+- **Supportive & Palliative Care Programs — Hospice of the Valley** — in Phoenix: Inpatient Care, 110 W. Muhammad Ali Way, Phoenix 85013 · (602) 234-6750. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Supportive & Palliative Care Programs — Hospice of the Valley** — in Phoenix: 3811 N. 44th St., Phoenix 85018 · (602) 636-6363. Listed under: Aging health issues, Chronic disease, Wellness.
+- **SVdP Center for Family Wellness — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Chronic disease, General health issues, Weight management, Wellness.
+- **SVdP Delta Dental of Arizona Oral Health Center — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Dental.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: General health issues, Wellness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: General health issues, Wellness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: General health issues, Wellness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: General health issues, Wellness.
+- **SVDP Free Medical Care at Virginia G. Piper Medical Clinic — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **SVDP-St. Anne’s Medical Equipment Loan Closet — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Wellness.
+- **SVDP-St. Anne’s Medical Equipment Loan Closet — St Vincent de Paul of Phoenix** — in Phoenix: 8231 N. 7th St., Phoenix 85020 · (602) 861-2634. Listed under: Wellness.
+- **The HIV Center of Excellence (HIVCOE) for American Indians/Alaska Natives — Phoenix Indian Medical Center (PIMC)** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: General health issues, Chronic disease, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1849 W Greenway, Phoenix 85023 · (602) 866-0647. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 24 E. Mohave St., Phoenix 85004 · (602) 256-4535. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Wellness.
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Wellness.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Wellness.
+- **The Salvation Army Kroc Center — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Wellness.
+- **The Salvation Army Phoenix Maryvale Corps Community Center — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Wellness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 N. 4th Ave., Phoenix 85003 · (602) 251-2000. Listed under: Aging health issues, Wellness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Aging health issues, Wellness.
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Wellness.
+- **Therapy services for children — Fusion Care Group** — in Phoenix: 4050 E Greenway, Phoenix 85032 · (888) 688-0248. Listed under: Wellness.
+- **Therapy services: in-person and virtual visits — Fusion Care Group** — in Phoenix: 4050 E Greenway, Phoenix 85032 · (888) 688-0248. Listed under: Wellness.
+- **This is MY Life (TIML) — Ability360** — in Phoenix: 5025 E. Washington St., Suite 200, Phoenix 85034 · (602) 443-0729. Listed under: General health issues, Wellness.
+- **Thunderbird VA Clinic — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave, Phoenix 85021 · (602) 633-6900. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **Title III & VI National Family Caregiver Support Program (NFCSP) — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Wellness.
+- **Training Programs — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — in Phoenix: Transforming Lives Center (Men's Campus), 1801 S. 35th Ave., Phoenix 85009 · (602) 346-3384. Listed under: Wellness.
+- **Transition Age Youth Program — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Wellness.
+- **Tribal Ombudsman Program — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Wellness, Aging health issues.
+- **Urgent or Same Day Services — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012-1892 · (602) 277-5551. Listed under: Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Phoenix: 1030 E. Liberty Ln., Phoenix 85048 · (602) 404-9622. Listed under: Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Phoenix: 350 North 1st Avenue, Phoenix 85003 · (602) 257-5138. Listed under: Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Phoenix: 3825 N. 67th Avenue, Phoenix 85033 · (623) 873-9622. Listed under: Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — in Phoenix: 5517 North 17th Avenue, Phoenix 85015 · (602) 242-7717. Listed under: Wellness.
+- **Veteran and Military Women Muster and Mingle — Veterans First LTD** — in Phoenix: 650 East Indian School Road, Phoenix 85012. Listed under: Wellness.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: General health issues.
+- **Veteran Transportation for Behavioral Health Services — Banner Health** — in Phoenix: 1111 E McDowell Rd, Phoenix 85006 · (602) 839-2000. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Veterans Services — Intensive Treatment Systems** — in Phoenix: North Clinic, 19401 N Cave Creek Rd, #18, Phoenix 85024 · (602) 996-0099. Listed under: Medication-assisted treatment, Wellness.
+- **Veterans Services — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Medication-assisted treatment, Wellness.
+- **Veterans Services — Intensive Treatment Systems** — in Phoenix: 651 W Coolidge Street, Phoenix 85013 · (602) 248-0550. Listed under: Medication-assisted treatment, Wellness.
+- **Wellness Program — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Wellness.
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Women and Infant Service Line (WISL) — Phoenix Indian Medical Center (PIMC)** — in Phoenix: 4212 North 16th Street, Phoenix 85016 · (602) 263-1200. Listed under: Wellness, General health issues.
+- **Women's Health - Addiction Treatment — Intensive Treatment Systems** — in Phoenix: North Clinic, 19401 N Cave Creek Rd, #18, Phoenix 85024 · (602) 996-0099. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Wellness.
+- **Women's Health - Addiction Treatment — Intensive Treatment Systems** — in Phoenix: 651 W Coolidge Street, Phoenix 85013 · (602) 248-0550. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Wellness.
+- **Women's Health - Addiction Treatment — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Wellness.
+- **Youth Council — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Wellness.
+- **Youth Services — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Wellness.
+
+## About this page
+
+This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

@@ -1,8 +1,121 @@
 # Employment in Pima County: Be Connected resources
 
-## Listed as serving Pima County under Employment (1)
+## Listed as serving Pima County under Employment (55)
 
+- **162WG MENTORING 101 — 162nd Wing - Arizona Air National Guard** — serves Pima County · (520) 295-6880 · addresses in TUCSON. 
+- **ACHIEVE Enterprise Services (AES) — ACHIEVE Human Services** — serves Pima County · (928) 341-4141 · addresses in Yuma. 
+- **Arizona National Guard Family Programs — Arizona Army National Guard** — serves Pima County · (800) 233-7758 · addresses in Phoenix. 
+- **Back to Work 50+ Program — Pima Community College** — serves Pima County. 
+- **Building Futures for Families — Arizona Youth Partnership** — serves Pima County. 
+- **Caregiver Apprenticeship program — Careworks AZ** — serves Pima County · (602) 603-8200 · addresses in Avondale. 
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Pima County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Pima County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment.
+- **Clothing Boutique — Girlfriends Closet** — serves Pima County · addresses in Tucson. 
+- **Compensated Work Therapy Programs — Southern Arizona VA Health Care System** — serves Pima County. 
+- **DreamBuilder: The Women’s Business Creator** — serves Pima County · (602) 601-7200 · addresses in Phoenix, Prescott, Tucson. 
+- **Educational Programs — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Pima County · (520) 888-1299 · addresses in Prescott, Tucson. 
+- **Educational Talent Search — Pima Community College** — serves Pima County · addresses in Tucson. 
+- **El Presidio Chapter- Daughters of the American Revolution** — serves Pima County. 
+- **Emerging Leaders Council (ELC) — Tucson Metro Chamber** — serves Pima County · (520) 792-1212 · addresses in Tucson. 
+- **Employer Programs** — serves Pima County · (520) 872-9095 · addresses in Tucson. 
+- **Employer Services & Resources** — serves Pima County · (520) 872-9095 · addresses in Tucson. 
+- **Employment Skills & Development Center — CODAC Health, Recovery, & Wellness, Inc.** — serves Pima County · (520) 318-9222 · addresses in Tucson. 
+- **Facilitators and Trainers — Pima Community College** — serves Pima County. 
+- **Farmworker Law Program — Community Legal Services** — serves Pima County. 
+- **Financial Education and Asset Building — Catholic Community Services - Pio Decimo Center** — serves Pima County · (520) 622-2801 · addresses in Tucson. 
+- **Fingerprint Services — Pima County Sheriff's Department** — serves Pima County · (520) 351-4971 · addresses in Ajo, Green Valley, Tucson. 
+- **Food Education Programs — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Tucson. 
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — serves Pima County · (520) 622-0525 · addresses in Amado, Green Valley, Marana, Nogales, Tucson. 
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — serves Pima County · (520) 297-6049 · addresses in Tucson. 
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — serves Pima County · (520) 297-6049 · addresses in Tucson. 
+- **Independent Living Services — Ability360** — serves Pima County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. 
+- **Job Seeker Resources** — serves Pima County · (520) 872-9095 · addresses in Tucson. 
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. 
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. 
+- **METRO Youth Program — Goodwill of Southern Arizona** — serves Pima County · addresses in Tucson. 
+- **Migration and Refugee Services — Catholic Community Services - Tucson** — serves Pima County · (520) 623-0344 · addresses in Tucson. 
+- **Military Life Cycle — Davis-Monthan Air Force Base** — serves Pima County. 
+- **Navigation Services — HOPE, Incorporated** — serves Pima County · addresses in Tucson. 
+- **Office of Small & Disadvantaged Business Utilization — U.S. Department of Veterans Affairs** — serves Pima County. 
+- **Parent Assistance Center (PAC) — Family Involvement Center** — serves Pima County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. 
+- **PCOA Katie Dusenberry Healthy Aging Center — Pima Council on Aging (PCOA) Region II** — serves Pima County · (520) 790-7262 · addresses in Tucson. 
+- **Pima County One-Stop** — serves Pima County · (520) 724-7650 · addresses in Tucson. 
+- **Project Action for Veterans — The Primavera Foundation** — serves Pima County · (520) 308-3093 · addresses in Tucson. 
+- **Resources for Interpreters — Community Outreach Program for the Deaf** — serves Pima County · (520) 792-1906 · addresses in Tucson. 
+- **SEABHS Employment Services — La Frontera-SouthEastern Arizona Behavioral Health Services (SEABHS)** — serves Pima County · (520) 458-3932 · addresses in Benson. 
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Pima County · (520) 792-1450 · addresses in Tucson. 
+- **Serving Those Who Have Served — Southwest Truck Driver Training, Inc.** — serves Pima County · (833) 234-3848 · addresses in Phoenix. 
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — serves Pima County · (520) 766-3663 · addresses in Tucson, Willcox. 
+- **The Salvation Army Amphi Corps Community Center — The Salvation Army Tucson** — serves Pima County · (520) 888-1299 · addresses in Tucson. 
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — serves Pima County · (520) 795-9671 · addresses in Tucson. 
+- **The Salvation Army Tucson Social Services** — serves Pima County · (520) 795-9671 · addresses in Tucson. 
+- **Transition Age Youth Program — MIKID** — serves Pima County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. 
+- **Tucson Chapter- Daughters of the American Revolution** — serves Pima County. 
+- **Tucson Fire Department Training — City of Tucson** — serves Pima County · addresses in Tucson. 
+- **Tucson Vet Center** — serves Pima County · (520) 882-0333 · addresses in Tucson. 
+- **Veterans Affairs Office — Tohono O’odham Nation** — serves Pima County · addresses in Sells. 
+- **Veterans Resource Center — Prescott College** — serves Pima County · (220) 863-0187 · addresses in Prescott, Tucson. 
+- **Vocational Services — Community Outreach Program for the Deaf** — serves Pima County · (520) 792-1906 · addresses in Tucson. 
+- **Youth Mentoring Program — Goodwill of Southern Arizona** — serves Pima County. 
+
+## Statewide programs under Employment, which also serve Pima County (56)
+
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. 
+- **Advocacy and Public Policy — Alliance of Arizona Nonprofits** — statewide. 
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. 
+- **ADVS Veteran Toolkit Program — Arizona Department of Veterans' Services (ADVS)** — statewide. 
+- **Alliance - AmeriCorps VISTA — Alliance of Arizona Nonprofits** — statewide · (602) 279-2966. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. 
+- **Annual Conference — Alliance of Arizona Nonprofits** — statewide. 
+- **ARIZONA Career Readiness Credential (ACRC) — ARIZONA@WORK** — statewide · (502) 509-3555. 
+- **Arizona Chamber Foundation — The Arizona Chamber of Commerce & Industry** — statewide · (602) 248-9172. 
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. 
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. 
+- **Arizona Gives Day — Alliance of Arizona Nonprofits** — statewide · (602) 279-2966. 
+- **Arizona Industries for the Blind — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 771-9100. 
+- **Arizona Manufacturers Council — The Arizona Chamber of Commerce & Industry** — statewide · (602) 248-9172. Listed under: Career development.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. 
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. 
+- **AZCourtHelp Initiative - Arizona Supreme Court** — statewide. 
+- **AZHiresVets! — State of Arizona** — statewide. 
+- **AZPOINT - Arizona Protective Order Initiation and Notification Tool — Arizona Supreme Court** — statewide. 
+- **BC for Employers-Career Navigation Services — Be Connected** — statewide. 
+- **BC Support Line — Be Connected** — statewide. 
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. 
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. 
+- **Business on Board — Alliance of Arizona Nonprofits** — statewide. 
+- **Career Pathways — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **Certified Higher Education Professional (CHEP) credential — Alliance of Arizona Nonprofits** — statewide. 
+- **Chamber Business News — The Arizona Chamber of Commerce & Industry** — statewide. 
+- **Coaching & Mentoring — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **Comp TI A+ Certification — TTY Career College** — statewide · (602) 343-1500. 
+- **Comp TIA Security+ Program — TTY Career College** — statewide · (602) 343-1500. 
+- **Culinary Degree Program — Arizona Culinary Institute** — statewide. 
+- **DES Business Enterprise Program (BEP) — DES Division of Employment & Rehabilitation Services** — statewide. 
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. 
+- **Fundamentals of Healthcare for Veterans Certification — Arizona State University (ASU)** — statewide. 
+- **Growing Better Together — Alliance of Arizona Nonprofits** — statewide. 
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. 
+- **Hiring Events — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. 
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. 
+- **Project Best — Child & Family Resources** — statewide · (520) 881-8940. 
+- **Robert Noyce Teacher Scholars Program — Arizona State University (ASU)** — statewide. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — statewide · (602) 241-6186. 
+- **Service Corps of Retired Executives — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7200. 
+- **Service Dog (SD) Certification Program — The Foundation for Service Dog Support, Inc.** — statewide. 
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. 
+- **Services for Business Owners — Arizona Department of State** — statewide. 
+- **SheLEADS — Arizona Women's Education and Employment, Inc.** — statewide · (602) 601-7215. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. 
+- **Troops to Educators program (TTE) — Arizona Department of Education** — statewide · (602) 542-4367. 
+- **Veteran Women Igniting the Spirit of Entrepreneurship — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Veterans Business Outreach Center (VBOC) — U.S. Small Business Administration (SBA)** — statewide · (480) 322-4634. 
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. 
+- **Women's Business Ownership Representative — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. 
+- **Youth Sports Official Training — Protect The Game** — statewide. 
 
 ## About this page
 

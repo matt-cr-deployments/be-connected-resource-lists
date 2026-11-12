@@ -1,0 +1,53 @@
+# Be Connected Physical Health resources within 5 miles of 86403 (ZIP code 86403)
+
+## Within 5 miles of ZIP code 86403 (33)
+
+- **Lake Havasu Vet Center — Tucson Vet Center** — about 0.3 miles from ZIP code 86403. 1720 Mesquite, Suite 101, Lake Havasu 86403 · (928) 505-0394. Listed under: Wellness.
+- **Hospice Care in Mohave County — Hospice of Havasu** — about 0.4 miles from ZIP code 86403. 232 London Bridge Road, Building A, Lake Havasu City 86403 · (928) 453-2111. Listed under: Death & dying.
+- **Family Support Services — Hospice of Havasu** — about 0.4 miles from ZIP code 86403. 232 London Bridge Road, Building A, Lake Havasu City 86403 · (928) 453-2111. Listed under: Wellness.
+- **Transitions Program — Hospice of Havasu** — about 0.4 miles from ZIP code 86403. 232 London Bridge Road, Building A, Lake Havasu City 86403 · (928) 453-2111. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Hospice Resources — Hospice of Havasu** — about 0.4 miles from ZIP code 86403. 232 London Bridge Road, Building A, Lake Havasu City 86403 · (928) 453-2111. Listed under: Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — about 0.4 miles from ZIP code 86403. 1845 McCulloch Boulevard, # B-1, Lake Havasu City 86403 · (928) 453-2661. Listed under: Medication-assisted treatment, Wellness.
+- **The Salvation Army Bullhead City Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — about 0.7 miles from ZIP code 86403. 2030 N. McCulloch, Lake Havasu City 86403 · (928) 505-3933. Listed under: Wellness.
+- **The Salvation Army Lake Havasu City Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — about 0.7 miles from ZIP code 86403. 2030 N. McCulloch, Lake Havasu City 86403 · (928) 505-3933. Listed under: Wellness.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — about 0.8 miles from ZIP code 86403. 2035 Mesquite Avenue, Suite D, Lake Havasu City 86403 · (928) 505-7100. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **Laboratory — Northern Arizona VA Health Care System** — about 0.8 miles from ZIP code 86403. 2035 Mesquite, Suite D, Lake Havasu City 86403 · (928) 505-7100. Listed under: General health issues, Wellness.
+- **NAVAHCS Lake Havasu City CBOC — Northern Arizona VA Health Care System** — about 0.8 miles from ZIP code 86403. 2035 Mesquite, Suite D, Lake Havasu City 86403 · (928) 505-7100. Listed under: Aging health issues, Chronic disease, Pain management/chronic pain, General health issues, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — about 0.8 miles from ZIP code 86403. 329 Lake Havasu Ave., Lake Havasu 86403 · (928) 764-7266. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — about 0.8 miles from ZIP code 86403. 329 Lake Havasu Ave., Lake Havasu 86403 · (928) 764-7266. Listed under: Medication-assisted treatment, Wellness.
+- **Peer Support Services — Community Medical Services** — about 0.8 miles from ZIP code 86403. 329 Lake Havasu Ave., Lake Havasu 86403 · (928) 764-7266. Listed under: Wellness.
+- **North Country HealthCare Behavioral Health Services** — about 0.8 miles from ZIP code 86403. 2090 N Smoketree Ave, Lake Havasu City 86403 · (928) 854-1800. Listed under: Wellness, General health issues.
+- **North Country HealthCare Primary Care & Family Medicine** — about 0.8 miles from ZIP code 86403. 2090 N Smoketree Ave, Lake Havasu City 86403 · (928) 854-1800. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **North Country HealthCare Pediatrics** — about 0.8 miles from ZIP code 86403. 2090 N Smoketree Ave, Lake Havasu City 86403 · (928) 854-1800. Listed under: Wellness, General health issues.
+- **The Salvation Army Kingman Service Center — The Salvation Army (Bullhead City/Laughlin Corps)** — about 1.0 miles from ZIP code 86403. 2049 Swanson Avenue, Lake Havasu City 86403 · (928) 680-3678. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — about 1.0 miles from ZIP code 86403. 2049 Swanson Avenue, Lake Havasu City 86403 · (928) 680-3678. Listed under: Wellness.
+- **The Polidori House — Hospice of Havasu** — about 1.2 miles from ZIP code 86403. 1970 Bahama Avenue, Lake Havasu City 86403 · (928) 453-2111. Listed under: Chronic disease, Death & dying.
+- **Havasu Strong & Steady Fitness and Support Groups — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. 92 Acoma Blvd S, Lake Havasu City 86403 · (928) 453-8190. Listed under: Chronic disease, Wellness.
+- **#YOUmatter — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Death & dying, Wellness.
+- **COPD-Better Breathers Club — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Chronic disease, Wellness.
+- **The Cancer Association of Havasu — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Chronic disease, Wellness.
+- **Dementia Connection of Havasu — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Fibromyalgia and Chronic Fatigue Syndrome Support Group — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Chronic disease, Pain management/chronic pain.
+- **Living Well With Chronic Pain — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: Chronic disease, Pain management/chronic pain.
+- **Stroke Support Group of Havasu — Havasu Community Health Foundation** — about 1.5 miles from ZIP code 86403. Acoma Executive Plaza, 94 Acoma Blvd. S. Suite 101, Lake Havasu City 86403 · (928) 453-8190. Listed under: General health issues, Aging health issues, Wellness.
+- **Senior Programs — Mohave County Department of Public Health** — about 2.0 miles from ZIP code 86403. 450 Acoma Blvd, Lake Havasu City 86406 · (928) 453-0715. Listed under: Aging health issues, Chronic disease, Wellness, Weight management.
+- **Environmental Health Division — Mohave County Department of Public Health** — about 2.2 miles from ZIP code 86403. 2001 College Drive, Lake Havasu City 86403 · (928) 757-0901. Listed under: General health issues.
+- **Public Health Nursing Services — Mohave County Department of Public Health** — about 2.2 miles from ZIP code 86403. 2001 College Drive, Lake Havasu City 86403 · (928) 753-0748. Listed under: Wellness, General health issues, Chronic disease.
+- **VA Claims Assistance — Disabled American Veterans Chapter 27 Lake Havasu City Arizona** — about 2.2 miles from ZIP code 86403. 2001 College Drive, Lake Havasu 86403 · (928) 855-0356. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness.
+- **Chemehuevi Clinic — Colorado River Service Unit (CRSU) - Parker Indian Health Center** — about 4.0 miles from ZIP code 86403. 1970 Palo Verde Drive, Havasu Lake 92363 · (760) 858-4790. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+
+## The next nearest, between 5 and 25 miles of ZIP code 86403 (9 of 9 shown)
+
+- **Parker Medical Center — La Paz Regional Hospital & Clinics** — about 22.6 miles from ZIP code 86403. 905 Fiesta Ave., Parker 85344 · (928) 669-2225. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Parker Indian Health Center — Indian Health Service** — about 22.9 miles from ZIP code 86403. 12033 Agency Rd., Parker 85344. Listed under: Inpatient, Partial hospitalization, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Parker Podiatry — La Paz Regional Hospital & Clinics** — about 23.3 miles from ZIP code 86403. 1713 Kofa Ave., Parker 85344 · (928) 669-3033. Listed under: General health issues, Wellness.
+- **Physical Therapy — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: Pain management/chronic pain, General health issues, Wellness, Aging health issues.
+- **Skilled Nursing Program — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: Aging health issues, Wellness, Chronic disease.
+- **Cardiology Program — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: Aging health issues, Wellness, Chronic disease.
+- **Diagnostic Radiology — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **River Health Clinic — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Urgent Care services — La Paz Regional Hospital & Clinics** — about 23.8 miles from ZIP code 86403. 1200 West Mohave Road, Parker 85344 · (928) 669-9201. Listed under: General health issues, Wellness.
+
+## About this page
+
+This page lists what is near ZIP code 86403, and only that ZIP code. Distances run from the middle of ZIP code 86403 to the program's nearest address, so near the edge of a ZIP code they can be off by a mile or two. They apply only to a question that names ZIP code 86403. A program with several addresses is listed once, at its nearest. 651 programs in this directory have no street address and are not on this page. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

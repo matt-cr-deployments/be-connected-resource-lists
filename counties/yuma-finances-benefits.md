@@ -1,8 +1,156 @@
 # Finances & Benefits in Yuma County: Be Connected resources
 
-## Listed as serving Yuma County under Finances & Benefits (1)
+## Listed as serving Yuma County under Finances & Benefits (52)
 
+- **Admissions Office - Tucson VA Medical Center — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Benefits.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Yuma County · addresses in Phoenix, Surprise. Listed under: Food, Budgeting.
+- **Backpack Program — Yuma Community Food Bank** — serves Yuma County. Listed under: Food.
+- **Care Services and Assistance — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Benefits, Food, Direct transportation assistance (e.g. provides transport to appointments).
+- **Catholic Community Services - Deaf & Residential Services — Catholic Community Services Of Southern Arizona Inc.** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: Benefits.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Yuma County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient, Budgeting, Benefits, Financial planning.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Yuma County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Benefits, Budgeting, Financial planning.
+- **Client Services — Community Outreach Program for the Deaf** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: Benefits, Financial planning.
+- **Community Development Block Grant (CDBG) — City of Yuma** — serves Yuma County. Listed under: Benefits.
+- **Consumer Law — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Debt/credit counseling, Financial planning.
+- **Daybreak Adult Day Health Care — Catholic Community Services - Yuma** — serves Yuma County · (928) 783-8316 · addresses in Yuma. Listed under: Benefits.
+- **Disaster Relief — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Food, Rapid rehousing.
+- **Emergency Services — Portable Practical Educational Preparation, Inc.** — serves Yuma County · addresses in Tucson. Listed under: Eviction prevention, Benefits, Food, Utilities.
+- **Family Self-Sufficiency (FSS) Program — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 782-3823 · addresses in Yuma. Listed under: Budgeting, Debt/credit counseling, Benefits.
+- **Farmworker Law Program — Community Legal Services** — serves Yuma County. Listed under: Benefits.
+- **Head Start & Early Head Start — Western Arizona Council of Governments (WACOG)** — serves Yuma County. Listed under: Benefits, Food.
+- **Health & Economic Security — Community Legal Services** — serves Yuma County. Listed under: Benefits.
+- **Home Modification — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County. Listed under: Utilities.
+- **Housing Counseling — Catholic Community Services - Pio Decimo Center** — serves Yuma County · (520) 622-2801 · addresses in Tucson. Listed under: Financial planning, Rapid rehousing, Eviction prevention.
+- **Housing Rehabilitation — City of Yuma** — serves Yuma County. Listed under: Benefits, Utilities.
+- **Independent Living Skills — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Benefits.
+- **Individual Development Account (IDA) Program — Western Arizona Community Alliance (WACA)** — serves Yuma County · (928) 318-9580 · addresses in Yuma. Listed under: Budgeting, Benefits, Financial planning, Debt/credit counseling.
+- **Information and Referral (I&R) — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Benefits.
+- **Information Referral — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Budgeting, Debt/credit counseling, Benefits, Eviction prevention, Food, Utilities.
 - **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Eviction prevention, Financial planning, Budgeting.
+- **Legal Services — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Yuma County · (928) 474-3779 · addresses in Apache Junction, Casa Grande, Globe, Hayden, Payson, Superior. Listed under: Benefits, Eviction prevention, Retirement, Financial planning.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Benefits, Taxes.
+- **Mental Health Intensive Case Management (MHICM) — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Medication-assisted treatment, Budgeting.
+- **Multi-Family Service Program (MSP) — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 782-3823 · addresses in Yuma. Listed under: Benefits, Financial planning, Retirement, Debt/credit counseling, Budgeting.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — serves Yuma County · (602) 535-4444 · addresses in Flagstaff, Lake Havasu City, Peoria, Phoenix, Prescott, Yuma. Listed under: Benefits, Budgeting, Food, Utilities.
+- **Rapid Rehousing — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Rapid rehousing.
+- **Respite Care — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
+- **Safe House – Domestic Violence Shelter — Catholic Community Services - Yuma** — serves Yuma County · (928) 341-9400 · addresses in Yuma. Listed under: Food.
+- **Senior Nutrition – Congregate Meals — Catholic Community Services - Yuma** — serves Yuma County · (928) 782-1105 · addresses in Yuma. Listed under: Benefits, Food.
+- **Senior Nutrition – Home-Delivered Meals — Catholic Community Services - Yuma** — serves Yuma County. Listed under: Benefits, Food.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Benefits, Eviction prevention, Rapid rehousing.
+- **Special Housing Vouchers from HACY — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 317-9973 · addresses in Yuma. Listed under: Benefits.
+- **State Health Insurance Assistance Program (SHIP) — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Benefits.
+- **Supportive Housing for Individuals with Disabilities — ACHIEVE Human Services** — serves Yuma County · (928) 341-4145 · addresses in Yuma. Listed under: Benefits.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — serves Yuma County · (520) 628-7837 · addresses in Tucson. Listed under: Food, Utilities, Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **The Emergency Food Assistance Program (TEFAP) — Yuma Community Food Bank** — serves Yuma County · (928) 343-1243 · addresses in Dateland, San Luis, Somerton, Wellton, Yuma. Listed under: Food.
+- **Transition Age Youth Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
+- **Veteran Services — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson. Listed under: Benefits, Food, Eviction prevention, Rapid rehousing, Utilities.
+- **WACOG A Hand Up Housing Counseling — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 753-6247 · addresses in Kingman, Yuma. Listed under: Budgeting, Debt/credit counseling, Benefits, Eviction prevention, Financial planning.
+- **WACOG Aging, Disability and Family Helpline Resource Center — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (800) 782-1886. Listed under: Benefits.
+- **WACOG Benefits Enrollment Center (BEC) — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Benefits, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **WACOG Case Management — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Benefits, Food, Utilities, Car repair, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **WACOG Transportation Planning Department — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 377-1070. Listed under: Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **Wellness Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Benefits.
+- **YCAT - Yuma County Area Transit — Yuma County Intergovernmental Public Transportation Authority (YCIPTA)** — serves Yuma County · (928) 783-2235 · addresses in Yuma. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **Yuma Vet Center — Tucson Vet Center** — serves Yuma County · (928) 271-8700 · addresses in Yuma. Listed under: Benefits.
+- **Yuma-Commodity Supplemental Food Program (CSFP) — Yuma Community Food Bank** — serves Yuma County · (928) 343-1243 · addresses in Yuma. Listed under: Food.
+
+## Statewide programs under Finances & Benefits, which also serve Yuma County (94)
+
+- **5 Ways to Prepare for Monsoon Season in Arizona — Salt River Project (SRP)** — statewide. Listed under: Utilities, Eviction prevention.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Benefits, Food.
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. Listed under: Eviction prevention, Benefits.
+- **ADOT Veteran License Designation — Arizona Department of Transportation (ADOT)** — statewide. Listed under: Benefits.
+- **ADVS Military Family Relief Fund (MFRF) — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Eviction prevention, Rapid rehousing, Food, Utilities.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Car repair.
+- **ADVS Veterans’ Memorial Cemeteries — Arizona Department of Veterans' Services (ADVS)** — statewide · (520) 458-7144. Listed under: Benefits.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Benefits.
+- **American Legion AZ - Veterans Benefits Assistance — The American Legion Department of Arizona** — statewide · (602) 627-3281. Listed under: Benefits.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Benefits.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Benefits.
+- **Arizona County Election Officials Contact Information — Arizona Department of State** — statewide · (877) 843-8683. Listed under: Benefits.
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Benefits, Eviction prevention, Food, Utilities, Rapid rehousing.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Benefits.
+- **Arizona Family Caregiver Reimbursement Program (FCRP) — Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Benefits.
+- **Arizona Indian Education Association — Inter Tribal Council of Arizona (ITCA)** — statewide · (602) 258-4822. Listed under: Benefits.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Benefits, Financial planning.
+- **Arizona Military Funeral Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Benefits.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Benefits.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Benefits.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **Arizona Self Help — Wildfire AZ** — statewide · (602) 604-0640. Listed under: Benefits, Food, Utilities.
+- **Arizona Veterans Hall of Fame Nomination — Unified Arizona Veterans** — statewide. Listed under: Benefits.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Benefits, Eviction prevention, Food, Rapid rehousing.
+- **Arizona/New Mexico Interpreting SuperCenter — Catholic Community Services - Deaf & Residential Services** — statewide. Listed under: Benefits.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Benefits.
+- **AZ MVD Now - MVD Expands At-Home Services and Restricts Office Visits — Arizona Department of Transportation (ADOT)** — statewide. Listed under: Benefits.
+- **AZEvictionHelp — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Eviction prevention.
+- **AZGeo Data Hub** — statewide. Listed under: Utilities.
+- **AZPVA Veteran Benefits Service Office — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Benefits.
+- **AZVETS Virtual Education Series — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Benefits.
+- **Bankruptcy 101 Educational Videos — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Budgeting, Debt/credit counseling.
+- **BC Support Line — Be Connected** — statewide. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Car repair.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Benefits.
+- **Beneficiary Travel (BT) program — Veterans Health Administration (VHA)** — statewide · (928) 445-4860. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: Food.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Utilities, Food, Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Benefits.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Benefits.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Benefits.
+- **Cash Assistance — Arizona Department of Economic Security (DES) - AVSE** — statewide. Listed under: Food, Utilities, Benefits.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Benefits, Food.
+- **Community Action Agencies list in Arizona — Wildfire AZ** — statewide. Listed under: Benefits, Food, Utilities.
+- **Copper Star (Bucky O’Neill) Award Nomination — Unified Arizona Veterans** — statewide. Listed under: Benefits.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Rapid rehousing, Food.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Food, Benefits.
+- **Energy and Utility Assistance — Wildfire AZ** — statewide. Listed under: Utilities.
+- **Find a Food Bank Near You — Arizona Food Bank Network (AzFBN)** — statewide. Listed under: Food.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: Food.
+- **Government Assistance Eligibility & Assistance — Wildfire AZ** — statewide. Listed under: Food, Benefits.
+- **Health Information and Education Center — Raising Special Kids** — statewide · (602) 242-4366. Listed under: Benefits.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Retirement, Benefits.
+- **Housing Stability Court Navigator Program — Arizona Supreme Court** — statewide · (928) 817-4174. Listed under: Eviction prevention.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Benefits, Food.
+- **iCanConnect — Catholic Community Services - Deaf & Residential Services** — statewide · (520) 622-2801. Listed under: Benefits.
+- **Information on Health Care Financing — Raising Special Kids** — statewide. Listed under: Benefits.
+- **Mother's Grace** — statewide. Listed under: Eviction prevention, Utilities.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Benefits.
+- **Nutrition Services Program - Congregate Nutrition Site (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Congregate Nutrition Site (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Food.
+- **Office of the Governor — State of Arizona** — statewide. Listed under: Benefits.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: Benefits.
+- **Parent School Choice Resources — School Choice Arizona** — statewide. Listed under: Benefits.
+- **People’s Information Guide — Wildfire AZ** — statewide. Listed under: Food, Utilities.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Benefits, Eviction prevention, Food, Utilities, Car repair, Direct transportation assistance (e.g. provides transport to appointments).
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Benefits.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **SSI/SSDI Outreach, Access, and Recovery (SOAR) — Substance Abuse and Mental Health Services Administration (SAMHSA)** — statewide. Listed under: Benefits.
+- **State Health Insurance Assistance Program (SHIP) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Benefits.
+- **Survivor Emergency Relief Fund (SERFund) — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Benefits, Food, Utilities, Car repair, Rapid rehousing.
+- **SVDP Home Visits — St Vincent de Paul of Phoenix** — statewide. Listed under: Food, Utilities, Eviction prevention, Benefits.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Eviction prevention, Utilities.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Utilities, Eviction prevention, Benefits.
+- **The Emergency Food Assistance Program — DES Division of Aging and Adult Services** — statewide · (928) 674-3614. Listed under: Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Benefits, Food.
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Eviction prevention.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Benefits, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **Unemployment Insurance Administration — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Benefits.
+- **Unemployment Insurance Benefit Program (UIB) — Arizona Department of Economic Security (DES) - AVSE** — statewide. Listed under: Benefits.
+- **Utility Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Benefits, Utilities.
+- **VA Benefits for Gulf War Veterans — Veterans Benefits Administration (VBA)** — statewide · (800) 827-1000. Listed under: Benefits.
+- **VA's Pension Program — Veterans Benefits Administration (VBA)** — statewide · (800) 827-1000. Listed under: Benefits.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Benefits.
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — statewide · (602) 745-7230. Listed under: Benefits.
+- **Veterans in Need Project — Veterans in Need Project (VINP)** — statewide · (928) 699-1797. Listed under: Eviction prevention, Food, Utilities, Car repair.
+- **Veterans Services Office — South Mountain Community College** — statewide. Listed under: Benefits.
+- **Veterans Transportation Service (VTS) — Veterans Health Administration (VHA)** — statewide · (928) 445-4860. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Victim Compensation — Arizona Criminal Justice Commission** — statewide · (928) 337-7560. Listed under: Benefits.
 
 ## About this page
 

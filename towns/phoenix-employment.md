@@ -1,0 +1,132 @@
+# Employment: Be Connected resources in Phoenix, Arizona
+
+- **161st Air Refueling Wing Airman & Family Readiness Program — 161st Air Refueling Wing - Arizona Air National Guard** — in Phoenix: 3200 E Old Tower Rd, Phoenix 85034 · (602) 302-9393. 
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — in Phoenix: 3839 N 3rd Street, Phoenix 85012. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. 
+- **Arizona Manufacturers Council — The Arizona Chamber of Commerce & Industry** — in Phoenix: 3200 North Central Avenue, Suite 1125, Phoenix 85012 · (602) 248-9172. Listed under: Career development.
+- **Arizona National Guard Family Programs — Arizona Army National Guard** — in Phoenix: 1335 N 52nd Street, M5701, Phoenix 85008 · (800) 233-7758. 
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. 
+- **BankWork$ — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — in Phoenix: 5025 East Washington Street, Suite 108, Phoenix 85034 · (602) 508-8024. 
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — in Phoenix: 5025 East Washington Street, Suite 108, Phoenix 85034 · (602) 508-8024. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 1625 W. Camelback Rd Suite #108, Phoenix 85015 · (602) 535-4444. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 4522 W. Indian School Road, Phoenix 85031 · (602) 535-4444. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 1130 E McDowell Rd, Phoenix 85006 · (602) 535-4444. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 515 N 51st Ave, Phoenix 85043 · (602) 535-4444. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 4005 N 16th St, Phoenix 85016 · (602) 279-5870. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 1140 E. Washington St., Phoenix 85034 · (602) 535-4444. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 2929 N 75th Ave, Phoenix 85033 · (623) 846-4900. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 3130 E Thomas Rd, Phoenix 85016 · (602) 535-4271. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 3514 W Peoria Ave, Phoenix 85029 · (602) 942-3830. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 1980 W Baseline Rd, Phoenix 85041 · (602) 276-0488. 
+- **Career Centers — Goodwill of Central and Northern Arizona** — in Phoenix: 6750 W Peoria Ave, Phoenix 85345 · (623) 486-5012. 
+- **Career Ladders Achieving Success and Security - C.L.A.S.S. — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **Career Pathways — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **Career Pathways — Arizona Women's Education and Employment, Inc.** — in Phoenix: 3333 E Van Buren St, Phoenix 85008 · (602) 275-7852. 
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. 
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. 
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment.
+- **Certification Training — Southwest Building Science Training Center (SWBSTC)** — in Phoenix: SWBSTC at FSL Home Improvement, 3051 S. 45th St., Phoenix 85040 · (602) 532-2976. 
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — in Phoenix: 338 N 15th Ave., Phoenix 85007 · (602) 688-6211. 
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. 
+- **Cisco Certified Network Associate (CCNA) Program — TTY Career College** — in Phoenix: 2200 N. Central Avenue, Suite 400, Phoenix 85004 · (602) 343-1500. 
+- **Clothing Boutique — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **Coaching & Mentoring — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **Coaching & Mentoring — Arizona Women's Education and Employment, Inc.** — in Phoenix: 3333 E Van Buren St, Phoenix 85008 · (602) 275-7852. 
+- **Comp TI A+ Certification — TTY Career College** — in Phoenix: 2200 N. Central Avenue, Suite 400, Phoenix 85004 · (602) 343-1500. 
+- **Comp TIA Network+ Certification — TTY Career College** — in Phoenix: 2200 N. Central Avenue, Suite 400, Phoenix 85004 · (602) 343-1500. 
+- **Comp TIA Security+ Program — TTY Career College** — in Phoenix: 2200 N. Central Avenue, Suite 400, Phoenix 85004 · (602) 343-1500. 
+- **CS50: Introduction to Computer Science with HARVARD UNIVERSITY — Warriors Code Inc.** — in Phoenix: 1246 E Jefferson, Phoenix 85034 · (602) 653-3022. 
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 4520 N. Central Avenue, Suite 550, Phoenix 85012 · (602) 601-7200. 
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 1130 East McDowell Road, Phoenix 85006 · (602) 261-7157. 
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 1221 N. Central Avenue, Phoenix 85004 · (602) 262-4636. 
+- **Employment Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. 
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 914 W. Hatcher Road, Phoenix 85021 · (602) 534-2433. 
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 4732 S. Central Ave., Phoenix 85040 · (602) 534-2433. 
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 3454 N. 51st Ave., Phoenix 85031 · (602) 534-2433. 
+- **Fire Prevention Division — Phoenix Fire Department** — in Phoenix: 150 S 12th St., Phoenix 85034 · (602) 262-6297. 
+- **Helping Women & Families Thrive — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. 
+- **Hiring Events — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. 
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. 
+- **IL Skills Training — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. 
+- **Independent Living Services — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. 
+- **Independent Living Services — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. 
+- **Jerome E. Miller Summer Leadership Academy — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. 
+- **Jerome E. Miller Summer Leadership Academy — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. 
+- **Jerome E. Miller Summer Leadership Academy — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. 
+- **MANA House — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. 
+- **MANA Outreach Center (MOC) — Catholic Charities MANA House** — in Phoenix: 1125 W Jackson Street, Classroom B, Phoenix 85007 · (602) 254-6785. 
+- **Mental Health Outpatient Services — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. 
+- **Mobile Outreach — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. 
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 4005 N. 16th St, Phoenix 85016 · (602) 535-4444. 
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 2929 N. 75th Ave., Phoenix 85033 · (602) 535-4444. 
+- **One-Stop — ARIZONA@WORK Maricopa County** — in Phoenix: 1840 North 95th Avenue, Suite 160, Phoenix 85037 · (602) 372-4200. 
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. 
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (844) 691-5948. Listed under: Detox, Medication-assisted treatment.
+- **Pathways to Success — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. 
+- **Pathways to Success — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. 
+- **Pathways to Success — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. 
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. 
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. 
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. 
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4635 S Central Ave, Phoenix 85040 · (602) 771-0630. 
+- **Phoenix Vet Center — Tucson Vet Center** — in Phoenix: 4020 North 20th Street, Suite 110, Phoenix 85016 · (602) 640-2981. 
+- **Project DreamCatcher — Thunderbird School of Global Management** — in Phoenix: 400 E. Van Buren Street, Suite 900, Phoenix 85004 · (602) 496-7000. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — in Phoenix: 1366 E Thomas, Phoenix 85014 · (602) 241-6186. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — in Phoenix: 5119 N 19th Ave, Suite A, Phoenix 85015 · (602) 841-0403. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — in Phoenix: 417 N 16th Street, Phoenix 85021 · (602) 535-4444. 
+- **Service Corps of Retired Executives — U.S. Small Business Administration (SBA)** — in Phoenix: 2828 N Central Ave, Ste 800, Phoenix 85004 · (602) 745-7200. 
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — in Phoenix: 5636 E. McDowell Road, Phoenix 85008 · (602) 267-2700. 
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — in Phoenix: 1500 East Thomas Rd., Suite 106, Phoenix 85014 · (602) 248-6040. Listed under: Detox, Residential treatment, Medication-assisted treatment.
+- **Serving Those Who Have Served — Southwest Truck Driver Training, Inc.** — in Phoenix: 2323 S. 51st Ave., Phoenix 85043 · (833) 234-3848. 
+- **SheLEADS — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+- **Smart Justice Program — ARIZONA@WORK Maricopa County** — in Phoenix: 1840 North 95th Avenue, Suite 160, Phoenix 85037 · (602) 372-4200. 
+- **St. Mary’s Community Kitchen — St. Mary's Food Bank** — in Phoenix: 3003 W. Thomas Road, Phoenix 85017. 
+- **Success With Home Performance training — Southwest Building Science Training Center (SWBSTC)** — in Phoenix: SWBSTC at FSL Home Improvement, 3051 S. 45th St., Phoenix 85040 · (602) 532-2976. 
+- **Summer Employment Programs — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. 
+- **Summer Employment Programs — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. 
+- **Summer Employment Programs — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. 
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. 
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. 
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. 
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. 
+- **SVDP Exiting Homelessness — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. 
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. 
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. 
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. 
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. 
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. 
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 2739 E Washington St, Phoenix 85034 · (602) 850-6900. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. 
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. 
+- **The Salvation Army Kroc Center — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. 
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — in Phoenix: Transforming Lives Center (Men's Campus), 1801 S. 35th Ave., Phoenix 85009 · (602) 346-3384. 
+- **Transition Age Youth Program — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. 
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. 
+- **Veteran Women Igniting the Spirit of Entrepreneurship — U.S. Small Business Administration (SBA)** — in Phoenix: Arizona District Office, 2828 North Central Ave Suite 800, Phoenix 85004 · (602) 745-7230. 
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — in Phoenix: Arizona District Office, 2828 North Central Ave Suite 800, Phoenix 85004 · (602) 745-7230. 
+- **Veterans Business Outreach Center (VBOC) — U.S. Small Business Administration (SBA)** — in Phoenix: 4520 N. Central 5th Floor, Suite 550, Phoenix 85012 · (480) 431-4171. 
+- **Warriors Code Adult Programs — Warriors Code Inc.** — in Phoenix: 1246 E Jefferson, Phoenix 85034 · (602) 653-3022. 
+- **Warriors Code Youth workshops — Warriors Code Inc.** — in Phoenix: 1246 E Jefferson, Phoenix 85034 · (602) 653-3022. 
+- **Weatherization — Southwest Building Science Training Center (SWBSTC)** — in Phoenix: SWBSTC at FSL Home Improvement, 3051 S. 45th St., Phoenix 85040 · (602) 532-2976. 
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Intensive outpatient (IOP), Medication-assisted treatment.
+- **Women's Business Ownership Representative — U.S. Small Business Administration (SBA)** — in Phoenix: Arizona District Office, 2828 North Central Ave Suite 800, Phoenix 85004 · (602) 745-7230. 
+- **Workforce Development - Career Services — U.S. VETS - Phoenix** — in Phoenix: 3507 North Central Avenue, Suite 200, Phoenix 85012. 
+- **Workforce Development - Job Readiness Workshops — Phoenix Indian Center** — in Phoenix: 4520 N. Central Ave, Ste 250, Phoenix 85012 · (602) 264-6768. 
+- **Workforce/Employment Assistance Services — UMOM New Day Centers** — in Phoenix: 3333 E Van Buren, Phoenix 85008. 
+- **Workshops — Arizona Women's Education and Employment, Inc.** — in Phoenix: 4520 N. Central, Suite 550, Phoenix 85012 · (602) 601-7215. 
+
+## About this page
+
+This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

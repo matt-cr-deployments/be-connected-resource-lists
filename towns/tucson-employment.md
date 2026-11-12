@@ -1,0 +1,97 @@
+# Employment: Be Connected resources in Tucson, Arizona
+
+- **162WG MENTORING 101 — 162nd Wing - Arizona Air National Guard** — in Tucson: 1650 E. PERIMETER WAY, TUCSON 85706-6052 · (520) 295-6880. 
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Tucson: 4905 E. Broadway Blvd, Bldg. C Room C-117, Tucson 85711 · (520) 206-4580. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Tucson: 335 N Wilmot Rd, #420, Tucson 85711 · (520) 260-8828. 
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Tucson: 4905 E. Broadway Blvd, Bldg. C Room C-117, Tucson 85711 · (520) 206-4580. 
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Tucson: 2950 N. Dodge Blvd., Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite B, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment.
+- **Clothing Boutique — Girlfriends Closet** — in Tucson: 60 Harrison Road, Tucson 85748. 
+- **Counseling - CCS - Tucson — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. 
+- **DreamBuilder: The Women’s Business Creator** — in Tucson: 525 N Bonita Ave., Tucson 85745 · (520) 519-9843. 
+- **Educational and Vocational Support — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. 
+- **Educational Programs — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 218 E. Prince Road, Tucson 85705 · (520) 888-1299. 
+- **Educational Talent Search — Pima Community College** — in Tucson: 4101 E Valencia Road, Tucson 85706. 
+- **Educational Talent Search — Pima Community College** — in Tucson: 3500 S 12th Avenue, Tucson 85713. 
+- **Educational Talent Search — Pima Community College** — in Tucson: 1725 E Bilby Road, Tucson 85706. 
+- **Emerging Leaders Council (ELC) — Tucson Metro Chamber** — in Tucson: 212 E Broadway Blvd., Tucson 85701 · (520) 792-1212. 
+- **Employer Programs** — in Tucson: 1455 South Alvernon Way, Tucson 85711 · (520) 872-9095. 
+- **Employer Programs** — in Tucson: 316 West Fort Lowell Road, Tucson 85705 · (520) 638-2230. 
+- **Employer Programs** — in Tucson: Pima County Kino Veterans' Workforce Center, 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. 
+- **Employer Programs** — in Tucson: 4355 East Calle Aurora, Tucson 85711 · (520) 206-3550. 
+- **Employer Programs** — in Tucson: 340 North Commerce Park Loop, City of Tucson Community Resource Center, Tortolita Building, Tucson 85745 · (520) 724-7650. 
+- **Employer Services & Resources** — in Tucson: 1455 South Alvernon Way, Tucson 85711 · (520) 872-9095. 
+- **Employer Services & Resources** — in Tucson: 316 West Fort Lowell Road, Tucson 85705 · (520) 638-2230. 
+- **Employer Services & Resources** — in Tucson: Pima County Kino Veterans' Workforce Center, 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. 
+- **Employer Services & Resources** — in Tucson: 4355 East Calle Aurora, Tucson 85711 · (520) 206-3550. 
+- **Employer Services & Resources** — in Tucson: 340 North Commerce Park Loop, City of Tucson Community Resource Center, Tortolita Building, Tucson 85745 · (520) 724-7650. 
+- **Employment Skills & Development Center — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 630 N Alvernon, Tucson 85711 · (520) 318-9222. 
+- **Employment Skills & Development Center — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 3130 E Broadway Blvd., Tucson 85716 · (520) 318-9222. 
+- **Employment Skills & Development Center — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 3100 N First Ave, Tucson 85719 · (520) 202-1840. 
+- **Employment Skills & Development Center — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 1075 E Fort Lowell Rd, Tucson 85719 · (520) 318-9222. 
+- **Financial Education and Asset Building — Catholic Community Services - Pio Decimo Center** — in Tucson: 848 S. 7th Avenue, Tucson 85701 · (520) 622-2801. 
+- **Fingerprint Services — Pima County Sheriff's Department** — in Tucson: 1650 East Benson Highway, Suite A, Tucson 85714 · (520) 351-4971. 
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. 
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 845 N. Main Ave., Tucson 85705 · (520) 882-5641. 
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 2405 S Cottonwood Ln., Tucson 85713 · (520) 622-0525. 
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. 
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — in Tucson: 122 North Craycroft Road, Tucson 85711 · (520) 297-6049. 
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — in Tucson: at New Spirit Lutheran Church, 8701 E. Old Spanish Trail, Tucson 85710 · (520) 297-6049. 
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — in Tucson: at El Pueblo Neighborhood Center, 101 W Irvington Rd, Unit 2A, Tucson 85714 · (520) 297-6049. 
+- **ICS - Emergency Assistance Services — Interfaith Community Services** — in Tucson: On the grounds of Christ the King Episcopal Church, 2820 W. Ina Road, Tucson 85741 · (520) 297-6049. 
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — in Tucson: 122 North Craycroft Road, Tucson 85711 · (520) 297-6049. 
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — in Tucson: at New Spirit Lutheran Church, 8701 E. Old Spanish Trail, Tucson 85710 · (520) 297-6049. 
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — in Tucson: at El Pueblo Neighborhood Center, 101 W Irvington Rd, Unit 2A, Tucson 85714 · (520) 297-6049. 
+- **ICS - Self-Sufficiency Programs — Interfaith Community Services** — in Tucson: 2820 W. Ina Road, Tucson 85741 · (520) 297-6049. 
+- **Independent Living Services — Ability360** — in Tucson: 1001 N. Alvernon Way, Tucson 85711 · (520) 449-8375. 
+- **Job Connection Centers — Goodwill of Southern Arizona** — in Tucson: 3725 E Fort Lowell Rd, Dodge Job Connection Center, Tucson 85716 · (520) 628-1883. 
+- **Job Connection Centers — Goodwill of Southern Arizona** — in Tucson: 2907 N 1st Ave, First Avenue Job Connection Center, Tucson 85719 · (520) 206-0333. 
+- **Job Connection Centers — Goodwill of Southern Arizona** — in Tucson: 7201 E 22nd St,, Kolb Job Connection Center, Tucson 85710 · (520) 545-9266. 
+- **Job Connection Centers — Goodwill of Southern Arizona** — in Tucson: 1680 W Valencia Rd, Midvale Job Connection Center, Tucson 85746 · (520) 547-5647. 
+- **Job Seeker Resources** — in Tucson: 1455 South Alvernon Way, Tucson 85711 · (520) 872-9095. 
+- **Job Seeker Resources** — in Tucson: 316 West Fort Lowell Road, Tucson 85705 · (520) 638-2230. 
+- **Job Seeker Resources** — in Tucson: Pima County Kino Veterans' Workforce Center, 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. 
+- **Job Seeker Resources** — in Tucson: 4355 East Calle Aurora, Tucson 85711 · (520) 206-3550. 
+- **Job Seeker Resources** — in Tucson: 340 North Commerce Park Loop, City of Tucson Community Resource Center, Tortolita Building, Tucson 85745 · (520) 724-7650. 
+- **Mental Health Outpatient Services — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. 
+- **Merilac Lodge - Group Home for Mothers and Infants — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. 
+- **METRO Youth Program — Goodwill of Southern Arizona** — in Tucson: 300 N. 4th Avenue, Tucson 85713. 
+- **Migration and Refugee Services — Catholic Community Services - Tucson** — in Tucson: 140 W. Speedway, Suite 130, Tucson 85705 · (520) 623-0344. 
+- **Navigation Services — HOPE, Incorporated** — in Tucson: 1200 N. Country Club, Tucson 85716. 
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. 
+- **PCOA Katie Dusenberry Healthy Aging Center — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. 
+- **Pima County One-Stop** — in Tucson: 340 N. Commerce Park Loop, Tortolita Building, Tucson 85745 · (520) 724-7650. 
+- **Pima County One-Stop** — in Tucson: Kino Service Center, 2797 E. Ajo Way, Tucson 85713 · (520) 725-7700. 
+- **Pima County One-Stop** — in Tucson: 2801 East Ajo Way, Tucson 85713 · (520) 724-2646. 
+- **Pima County One-Stop** — in Tucson: 320 N. Commerce Park Loop, Sentinel Building, 2nd Floor, Tucson 85745 · (520) 724-9649. 
+- **Pima County One-Stop** — in Tucson: 801 W. Congress St., Tucson 85745 · (520) 724-2460. 
+- **Pima County One-Stop** — in Tucson: 400 E. 26th St., Tucson 85713 · (520) 724-7300. 
+- **Project Action for Veterans — The Primavera Foundation** — in Tucson: 3504 S. 6th Ave., Suite 150, Tucson 85701 · (520) 308-3093. 
+- **Project Best — Child & Family Resources** — in Tucson: Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. 
+- **Resources for Interpreters — Community Outreach Program for the Deaf** — in Tucson: 268 W. Adams Street, Tucson 85705 · (520) 792-1906. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — in Tucson: 802 E 46th Street, Tucson 85713 · (520) 770-5203. 
+- **Senior Community Service Employment Program — DES Division of Aging and Adult Services** — in Tucson: 3690 S Park Ave, Suite 801, Tucson 85713 · (520) 207-0053. 
+- **Service Corps of Retired Executives — U.S. Small Business Administration (SBA)** — in Tucson: 1400 W Speedway Blvd, Tucson 85711 · (520) 505-3636. 
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. 
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — in Tucson: 2405 S Cottonwood Ln., Tucson 85713 · (520) 766-3663. 
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — in Tucson: 845 N. Main Ave., Tucson 85705 · (520) 882-5641. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 1625 S. 3rd Avenue, Tucson 85713 · (520) 620-1076. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 218 E. Prince Road, Tucson 85705 · (520) 888-1299. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 2717 S. 6th Avenue, Tucson 85713 · (520) 624-1741. 
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 1002 N Main Ave, Tucson 85705 · (520) 795-9671. 
+- **The Salvation Army Amphi Corps Community Center — The Salvation Army Tucson** — in Tucson: 218 E. Prince Road, Tucson 85705 · (520) 888-1299. 
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — in Tucson: Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. 
+- **The Salvation Army Tucson Social Services** — in Tucson: Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. 
+- **Transition Age Youth Program — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. 
+- **Tucson Fire Department Training — City of Tucson** — in Tucson: City Hall, 255 West Alameda, Tucson 85701. 
+- **Tucson Vet Center** — in Tucson: 2525 E. Broadway Blvd., Suite 100, Tucson 85716 · (520) 882-0333. 
+- **Veteran Women Igniting the Spirit of Entrepreneurship — U.S. Small Business Administration (SBA)** — in Tucson: 300 West Congress Street, Room 7N, Tucson 85701 · (520) 620-7042. 
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — in Tucson: 300 West Congress Street, Room 7N, Tucson 85701 · (520) 620-7042. 
+- **Veterans Resource Center — Prescott College** — in Tucson: 1300 S. Belvedere Ave., Tucson 85711 · (888) 797-4680. 
+- **Vocational Services — Community Outreach Program for the Deaf** — in Tucson: 268 W. Adams Street, Tucson 85705 · (520) 792-1906. 
+- **Women's Business Ownership Representative — U.S. Small Business Administration (SBA)** — in Tucson: 300 West Congress Street, Room 7N, Tucson 85701 · (520) 620-7042. 
+
+## About this page
+
+This page lists programs with an address in Tucson. Programs based elsewhere that serve Tucson are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

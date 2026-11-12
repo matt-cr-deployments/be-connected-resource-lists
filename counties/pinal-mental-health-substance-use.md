@@ -1,8 +1,157 @@
 # Mental Health & Substance Use in Pinal County: Be Connected resources
 
-## Listed as serving Pinal County under Mental Health & Substance Use (1)
+## Listed as serving Pinal County under Mental Health & Substance Use (79)
 
+- **Aftercare and Recovery Maintenance — La Frontera Arizona** — serves Pinal County · (480) 784-1514 · addresses in Apache Junction, Glendale, San Tan Valley, Tempe. Listed under: Prescription medication, Drugs, Alcohol.
+- **Art Awakenings - Therapy — Resilient Health** — serves Pinal County · (877) 779-2470 · addresses in Casa Grande, Douglas, Gilbert, Parker, Phoenix, Tempe. Listed under: Mental health wellness.
+- **Caregiver Support Services — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Pinal County · (520) 836-2758 · addresses in Casa Grande. Listed under: Mental health wellness.
+- **Casa Grande Community Based Outpatient Clinic — Southern Arizona VA Health Care System** — serves Pinal County · (520) 836-2536 · addresses in Casa Grande. Listed under: General mental health services, Depression/mood disorders, Mental health wellness, Chronic diseases, Chronic pain.
+- **Casa Grande Valley Chapter- Daughters of the American Revolution** — serves Pinal County. Listed under: Mental health wellness, Workplace issues.
+- **Case Management — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Pinal County · (520) 836-2758 · addresses in Casa Grande. Listed under: Mental health wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Pinal County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Suicide and crisis, Alcohol, Drugs, Prescription medication, Co-occurring disorders (mental health/substance use), Depression/mood disorders.
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Pinal County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Pinal County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, General mental health services, Alcohol, Drugs, Anxiety, Chronic diseases.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Pinal County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Alzheimers, dementia & cognitive issues, Anger, Anxiety, Chronic diseases, Co-occurring disorders (mental health/substance use), Depression/mood disorders.
+- **Client Services — Community Outreach Program for the Deaf** — serves Pinal County · (520) 792-1906 · addresses in Tucson. Listed under: General mental health services, Mental health wellness.
+- **Community Education Programs — Hospice of the Valley** — serves Pinal County. Listed under: Grief & loss, Mental health wellness.
+- **Community Engagement for MAT Services — Community Medical Services** — serves Pinal County. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol, Drugs, Prescription medication.
+- **Community Partners — Pet Partners of Arizona** — serves Pinal County. Listed under: Mental health wellness.
+- **Coping Skills Group — La Frontera Arizona** — serves Pinal County · (480) 784-1514 · addresses in Glendale, Tempe. Listed under: Mental health wellness.
+- **Correctional Health Services — Community Medical Services** — serves Pinal County. Listed under: Co-occurring disorders (mental health/substance use), Alcohol, Drugs.
+- **Counseling Services — Catholic Charities Community Services** — serves Pinal County · (602) 997-6105 · addresses in Mesa, Peoria, Phoenix. Listed under: Anger, Anxiety, Death & dying, Depression/mood disorders, Eating disorders, Grief & loss.
+- **Counseling Support for Caregivers — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Pinal County. Listed under: Mental health wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — serves Pinal County · (520) 586-6171 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Alcohol, Drugs, Prescription medication, Transition & reintegration, Co-occurring disorders (mental health/substance use), Psychosis.
+- **Crisis Prevention/Intervention — Phoenix VA Health Care System** — serves Pinal County · (602) 277-5551 · addresses in Phoenix. Listed under: Anxiety, Depression/mood disorders, Grief & loss, Mental health wellness, Post-traumatic stress, Trauma.
+- **Dementia Care Programs — Hospice of the Valley** — serves Pinal County · (602) 995-9323 · addresses in Phoenix. Listed under: Alzheimers, dementia & cognitive issues.
+- **Empowerment Group — La Frontera Arizona** — serves Pinal County · (480) 784-1514 · addresses in Apache Junction, Glendale, Maricopa, Phoenix, San Tan Valley, Tempe. Listed under: General mental health services.
+- **Family Support Services — Hospice of the Valley** — serves Pinal County. Listed under: Grief & loss, Mental health wellness.
+- **Helping Women & Families Thrive — Hope Women's Center** — serves Pinal County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. Listed under: Anxiety, Depression/mood disorders, Grief & loss, Mental health wellness, Post-traumatic stress, Sexual trauma.
+- **Home Care Services — Ability360** — serves Pinal County. Listed under: Mental health wellness.
+- **Honoring/Hiring/Helping Our Heroes of Pinal County** — serves Pinal County · (520) 338-2568 4. Listed under: Depression/mood disorders, Mental health wellness, Post-traumatic stress, General mental health services, Sexual trauma, TBI-related symptoms.
+- **Hospice Care & More Programs — Hospice of the Valley** — serves Pinal County · (602) 234-6750 · addresses in Chandler, Gilbert, Glendale, Phoenix, Scottsdale, Surprise. Listed under: Residential treatment, Alzheimers, dementia & cognitive issues, Mental health wellness.
+- **IL Skills Training — Ability360** — serves Pinal County · addresses in Phoenix. Listed under: General mental health services, Mental health wellness.
+- **Independent Living Services — Ability360** — serves Pinal County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Mental health wellness.
+- **Individual Therapy & Group Counseling — Phoenix VA Health Care System** — serves Pinal County · (602) 277-5551 · addresses in Phoenix. Listed under: Medication-assisted treatment, General mental health services, Alzheimers, dementia & cognitive issues, Anger, Anxiety, Chronic pain, Chronic diseases.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — serves Pinal County · (520) 586-6171 · addresses in Avondale, Benson, Casa Grande, Mesa, Payson, Phoenix. Listed under: Detox, Inpatient, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness, Transition & reintegration, Alcohol, Drugs.
+- **Kinship/Care Giver Support Group — MIKID** — serves Pinal County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: General mental health services, Anger, Anxiety, ADHD, Bullying, Chronic diseases.
+- **Lesbian, Gay, Bisexual and Transgender Veteran Care — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Sexuality, General mental health services, Anxiety, Depression/mood disorders, Mental health wellness.
+- **Living Skills — MIKID** — serves Pinal County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Mental health wellness.
+- **Local Support Groups — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Pinal County · (928) 425-8863 · addresses in Arizona City, Casa Grande, Florence, Globe, Maricopa, Payson. Listed under: Mental health wellness.
+- **Medical, Primary Care, and Family Medicine — Desert Senita Community Health Center (DSCHC)** — serves Pinal County · (520) 387-5651 · addresses in Ajo, Arizona City. Listed under: Mental health wellness.
+- **Medicated Assisted Drug Addiction Treatment — Terros Health** — serves Pinal County · addresses in Phoenix. Listed under: Residential treatment, Intensive outpatient (IOP), Prescription medication, Drugs, Other types of substance use and addiction.
+- **Medication Misuse Prevention — Pinal-Gila Council for Senior Citizens, AAA Region V** — serves Pinal County · (520) 836-2758 · addresses in Casa Grande. Listed under: Mental health wellness, Co-occurring disorders (mental health/substance use), Prescription medication.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — serves Pinal County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Mental health wellness, Drugs, Alcohol, Prescription medication.
+- **Men to Men Support Group — MIKID** — serves Pinal County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: ADHD, Mental health wellness.
+- **Mental Health Intensive Case Management (MHICM) — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Medication-assisted treatment, General mental health services, Anger, Anxiety, Depression/mood disorders, Mental health wellness.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Pinal County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: General mental health services, Mental health wellness, Anxiety, Trauma, Post-traumatic stress.
+- **Mental Health Services — Phoenix VA Health Care System** — serves Pinal County · (602) 277-5551 · addresses in Phoenix. Listed under: Medication-assisted treatment, General mental health services, Alzheimers, dementia & cognitive issues, Anger, Anxiety, Chronic diseases, Chronic pain.
+- **Mental Health Services — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: General mental health services, Anger, Anxiety, Chronic diseases, Co-occurring disorders (mental health/substance use), Depression/mood disorders.
+- **Military Sexual Trauma (F) — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Sexual trauma, Trauma.
+- **Old Pueblo Chapter- Daughters of the American Revolution** — serves Pinal County. Listed under: Workplace issues, Mental health wellness.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — serves Pinal County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: General mental health services, Anxiety, Depression/mood disorders, Mental health wellness, Post-traumatic stress, Trauma.
+- **Patient Health Education — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Tobacco, Depression/mood disorders.
+- **PCSO Victim Services — Pinal County Sheriff** — serves Pinal County · (520) 866-5111 · addresses in Florence. Listed under: Mental health wellness, Post-traumatic stress, Trauma.
+- **Peer Support Services — Community Medical Services** — serves Pinal County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Co-occurring disorders (mental health/substance use), Mental health wellness, Alcohol, Drugs, Prescription medication.
+- **Peer Support — Community Bridges, Inc.** — serves Pinal County · (480) 838-5550 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Prescription medication, Drugs, Alcohol, Co-occurring disorders (mental health/substance use).
+- **Pet Partners Visits — Pet Partners of Arizona** — serves Pinal County. Listed under: Mental health wellness.
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — serves Pinal County · (520) 792-5704 · addresses in Avondale, Casa Grande, Globe, Green Valley, Tucson. Listed under: Residential treatment, General mental health services, Alzheimers, dementia & cognitive issues, Anger, Anxiety, Autism, Chronic diseases.
+- **Pregnancy & Women's Health Services — Community Medical Services** — serves Pinal County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Mental health wellness, Drugs, Alcohol, Prescription medication.
+- **Project Healing Waters Fly Fishing programs — Project Healing Waters Fly Fishing (PHWFF)** — serves Pinal County · (520) 533-8363 · addresses in Fort Huachuca, Gilbert, Phoenix. Listed under: Transition & reintegration.
+- **PVAHCS Staff Sergeant Alexander W. Conrad Veterans Affairs Health Care Clinic — Phoenix VA Health Care System** — serves Pinal County · (480) 397-2800 · addresses in Gilbert. Listed under: General mental health services, Mental health wellness.
+- **Respite Care — MIKID** — serves Pinal County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Mental health wellness.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: General mental health services, Mental health wellness, Post-traumatic stress, Depression/mood disorders, Co-occurring disorders (mental health/substance use), Chronic diseases.
+- **SMI Health Homes — Arizona Complete Health** — serves Pinal County. Listed under: Residential treatment, Medication-assisted treatment, Anxiety, Chronic diseases, Chronic pain, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness.
+- **Solari Crisis Transportation (Dispatch & Reporting) — Solari, Inc.** — serves Pinal County. Listed under: Depression/mood disorders, Anger, Anxiety, Co-occurring disorders (mental health/substance use), Grief & loss, Post-traumatic stress.
+- **Suicide Prevention Program — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Suicide and crisis.
+- **Support Groups (Autism) — MIKID** — serves Pinal County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Autism, Mental health wellness.
+- **Support Groups — MIKID** — serves Pinal County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: ADHD, Mental health wellness, Autism.
+- **Supportive & Palliative Care Programs — Hospice of the Valley** — serves Pinal County · (602) 234-6750 · addresses in Chandler, Gilbert, Glendale, Phoenix, Scottsdale, Surprise. Listed under: Alzheimers, dementia & cognitive issues, Mental health wellness.
+- **The Salvation Army Apache Junction Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Pinal County · (480) 962-9103 · addresses in Apache Junction, Mesa. Listed under: Mental health wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — serves Pinal County · (623) 934-0469 · addresses in Apache Junction, Casa Grande, Chandler, Glendale, Mesa, Phoenix. Listed under: Grief & loss, Mental health wellness, Post-traumatic stress, Trauma.
+- **Training Programs — MIKID** — serves Pinal County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: General mental health services, Chronic diseases, Chronic pain, Death & dying, Anxiety, Depression/mood disorders.
+- **Transgender Services — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Sexuality.
+- **Veteran Justice Outreach Initiative (VJO) — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Co-occurring disorders (mental health/substance use), Mental health wellness, Post-traumatic stress, Transition & reintegration, TBI-related symptoms.
+- **VETMotorsports Ride-Along Events in So Arizona — Sports Car Club of America Arizona Border Region (SCCA)** — serves Pinal County · addresses in Marana. Listed under: Mental health wellness, Transition & reintegration.
+- **Warm Line — HOPE, Incorporated** — serves Pinal County. Listed under: General mental health services, Anxiety, Anger, Depression/mood disorders, Grief & loss, Mental health wellness.
+- **Wellness Program — Awakening Wholeness, Inc.** — serves Pinal County · (430) 305-2090 · addresses in Scottsdale. Listed under: General mental health services, Co-occurring disorders (mental health/substance use), Chronic diseases, Mental health wellness, Post-traumatic stress, Alcohol.
+- **Women's Behavioral Health — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: General mental health services, Depression/mood disorders, Anxiety, Mental health wellness, Post-traumatic stress, Transition & reintegration.
+- **Women's General Care — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Alcohol, Drugs, Prescription medication, Tobacco.
+- **Women’s Health Care Program — Southern Arizona VA Health Care System** — serves Pinal County · (520) 792-1450 · addresses in Tucson. Listed under: Residential treatment, General mental health services, Depression/mood disorders, Mental health wellness, Drugs, Alcohol.
+- **Youth Peer Support — MIKID** — serves Pinal County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Mental health wellness.
+- **Youth Program — Family Involvement Center** — serves Pinal County · (928) 440-6180 · addresses in Flagstaff, Prescott Valley. Listed under: Mental health wellness.
+- **Youth Services — MIKID** — serves Pinal County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: ADHD, Anger, Anxiety, Autism, Bullying, Co-occurring disorders (mental health/substance use).
+- **Youth Warm Line — HOPE, Incorporated** — serves Pinal County. Listed under: General mental health services, Anger, Anxiety, Bullying, Depression/mood disorders, Grief & loss.
+
+## Statewide programs under Mental Health & Substance Use, which also serve Pinal County (68)
+
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: TBI-related symptoms.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Mental health wellness, Post-traumatic stress, Sexual trauma, Trauma.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Mental health wellness, Post-traumatic stress, Sexual trauma, Trauma.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Drugs, Prescription medication.
+- **AHCCCS Housing Program — HOM, Inc.** — statewide · (602) 296-6594. Listed under: Co-occurring disorders (mental health/substance use), Chronic diseases, Depression/mood disorders, Post-traumatic stress, Transition & reintegration.
+- **Arizona Behavioral Counseling & Education — Substance Abuse and Mental Health Services Administration (SAMHSA)** — statewide · (602) 788-1116. Listed under: Intensive outpatient (IOP), General mental health services, Anger, Anxiety, Chronic pain, Co-occurring disorders (mental health/substance use), Death & dying.
+- **Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Depression/mood disorders, Post-traumatic stress.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Grief & loss.
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Drugs, Prescription medication.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Mental health wellness.
+- **Arizona Smokers’ Helpline — ASHLine** — statewide · (800) 556-6222. Listed under: Tobacco.
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Anger, Anxiety, Mental health wellness, Post-traumatic stress, Trauma, Transition & reintegration.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: General mental health services.
+- **Axiom Care at Victory Place - General Resources** — statewide · (602) 825-2592. Listed under: Detox, Residential treatment, General mental health services.
+- **BC Support Line — Be Connected** — statewide. Listed under: General mental health services, Co-occurring disorders (mental health/substance use), Mental health wellness, Post-traumatic stress, Grief & loss, Transition & reintegration.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Mental health wellness.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Mental health wellness, TBI-related symptoms.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Mental health wellness, TBI-related symptoms.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: TBI-related symptoms, Mental health wellness.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: TBI-related symptoms.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Mental health wellness, TBI-related symptoms.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Mental health wellness.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Mental health wellness.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Anxiety, Mental health wellness, Transition & reintegration.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Mental health wellness, Anger, Anxiety, Bullying, Transition & reintegration, Trauma.
+- **Cru Military Combat Trauma Support Groups** — statewide. Listed under: Mental health wellness, Post-traumatic stress, Transition & reintegration, Trauma.
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Alzheimers, dementia & cognitive issues.
+- **DES Family Caregiver Support Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General mental health services, Mental health wellness.
+- **DES Family Caregiver Support Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General mental health services, Mental health wellness.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Mental health wellness, Post-traumatic stress, Grief & loss, Trauma.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Mental health wellness.
+- **Entune - General Resources — Entune Behavioral Health** — statewide · (520) 201-0730. Listed under: Medication-assisted treatment, Anxiety, Depression/mood disorders, Mental health wellness.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: General mental health services, Mental health wellness.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Mental health wellness, Anxiety, Transition & reintegration.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: Mental health wellness.
+- **Guitars for Vets Music Lessons for Vets** — statewide · (855) 448-4376. Listed under: Anxiety, Depression/mood disorders, Grief & loss, Mental health wellness, Post-traumatic stress, Anger.
+- **Healing of Memories Workshop — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Anxiety, Mental health wellness, Trauma, Anger, Grief & loss, Post-traumatic stress.
+- **Healthcare Resources for Veterans and Service Providers — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General mental health services.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Alzheimers, dementia & cognitive issues, Chronic diseases, Chronic pain, Death & dying, Grief & loss, Mental health wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General mental health services, Anger, Anxiety, Autism.
+- **Inpatient Addiction Treatment — Copper Springs Behavioral Health** — statewide. Listed under: Detox, Inpatient, Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Mental health wellness, Other types of substance use and addiction, Alcohol, Drugs.
+- **Inpatient Adolescent Program — Quail Run Behavioral Health** — statewide. Listed under: Inpatient, General mental health services, ADHD, Anger, Anxiety, Autism, Bullying.
+- **Inpatient Adult Program — Quail Run Behavioral Health** — statewide. Listed under: Inpatient, General mental health services, ADHD, Anger, Anxiety, Autism, Bullying.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Anger, Anxiety, Bullying, Co-occurring disorders (mental health/substance use), Depression/mood disorders, Grief & loss.
+- **Inpatient Mental Health Treatment — Copper Springs Behavioral Health** — statewide. Listed under: Inpatient, General mental health services, ADHD, Anxiety, Depression/mood disorders, Co-occurring disorders (mental health/substance use), Mental health wellness.
+- **La Frontera/EMPACT Crisis Hotlines — La Frontera Arizona** — statewide · (480) 784-1500. Listed under: Suicide and crisis, General mental health services, ADHD, Alzheimers, dementia & cognitive issues, Anger, Anxiety.
+- **MAT Resources — Center for Applied Behavioral Health Policy** — statewide. Listed under: Medication-assisted treatment, Co-occurring disorders (mental health/substance use).
+- **Medication-Assisted Treatment — Valle del Sol** — statewide · (602) 536-4153. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Co-occurring disorders (mental health/substance use), Alcohol, Drugs, Prescription medication, Other types of substance use and addiction.
+- **Mental Health Services — Transitions Counseling and Consulting** — statewide · (602) 363-0629. Listed under: Medication-assisted treatment, Anxiety, Mental health wellness, Post-traumatic stress, ADHD, Bullying.
+- **Mobile Spay/Neuter & Vaccination Clinics — The Parker Project** — statewide. Listed under: Mental health wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Sexuality, Sexual trauma, Trauma, Mental health wellness.
+- **Mobilize AZ — Blue Cross Blue Shield of Arizona** — statewide. Listed under: Co-occurring disorders (mental health/substance use), Anxiety, Chronic diseases, Depression/mood disorders, Mental health wellness.
+- **Moral Injury Education — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: General mental health services, Anger, Anxiety, Grief & loss, Mental health wellness, Post-traumatic stress.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: General mental health services.
+- **Opioid Treatment — Fountain Hills Recovery** — statewide. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Drugs.
+- **Outpatient Substance Abuse Treatment — Horizon Health and Wellness** — statewide. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Alcohol, Drugs.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Co-occurring disorders (mental health/substance use), Mental health wellness.
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Alzheimers, dementia & cognitive issues, Mental health wellness.
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General mental health services, Mental health wellness.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. Listed under: Co-occurring disorders (mental health/substance use), Depression/mood disorders, Post-traumatic stress, Psychosis, Sexual trauma, Suicide and crisis.
+- **St. Francis Retreats — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Grief & loss, Mental health wellness, Post-traumatic stress, Transition & reintegration, Trauma, Anger.
+- **The Psychology Lab** — statewide · (602) 753-8835. Listed under: Medication-assisted treatment, Anxiety, Depression/mood disorders, Eating disorders, Grief & loss, Mental health wellness, Post-traumatic stress.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Mental health wellness, Co-occurring disorders (mental health/substance use).
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Alcohol, Drugs.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: TBI-related symptoms.
+- **Trauma-Focused Intensive Outpatient Program (IOP) in Arizona — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Intensive outpatient (IOP), Anxiety, Anger, Mental health wellness, Post-traumatic stress, Trauma.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Mental health wellness.
 
 ## About this page
 

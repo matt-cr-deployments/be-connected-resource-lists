@@ -1,9 +1,179 @@
 # Physical Health in Yuma County: Be Connected resources
 
-## Listed as serving Yuma County under Physical Health (2)
+## Listed as serving Yuma County under Physical Health (74)
 
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Yuma County · addresses in Phoenix, Surprise. Listed under: Wellness.
+- **Blind Services Program — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Aging health issues, Wellness, Chronic disease.
+- **Care Services and Assistance — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Yuma County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Wellness.
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Yuma County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Yuma County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Yuma County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **Client Services — Community Outreach Program for the Deaf** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: General health issues, Wellness.
+- **Community Development Block Grant (CDBG) — City of Yuma** — serves Yuma County. Listed under: Wellness.
+- **Community Engagement for MAT Services — Community Medical Services** — serves Yuma County. Listed under: Medication-assisted treatment, Wellness.
+- **Community Living Center — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: General health issues, Chronic disease, Aging health issues, Wellness.
+- **Community Partners — Pet Partners of Arizona** — serves Yuma County. Listed under: Wellness.
+- **Contract Nursing Home Program — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Wellness.
+- **Correctional Health Services — Community Medical Services** — serves Yuma County. Listed under: Wellness.
+- **Daybreak Adult Day Health Care — Catholic Community Services - Yuma** — serves Yuma County · (928) 783-8316 · addresses in Yuma. Listed under: Aging health issues, Wellness.
+- **Disaster Relief — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: General health issues, Wellness.
+- **Gastroenterology (GI) Services — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Head Start & Early Head Start — Western Arizona Council of Governments (WACOG)** — serves Yuma County. Listed under: Wellness.
+- **Health & Economic Security — Community Legal Services** — serves Yuma County. Listed under: General health issues, Wellness.
+- **Hemodialysis Unit (HDU) — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Chronic disease.
+- **Hot News!!! How You Can Prepare For The Heat — Yuma County Public Health Services District** — serves Yuma County. Listed under: Wellness.
+- **Independent Living Skills — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Information and Referral (I&R) — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Information Referral — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: General health issues, Traumatic Brain Injury, Wellness.
+- **Interpreting Services — Community Outreach Program for the Deaf** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Traumatic Brain Injury, Wellness.
+- **Laboratory — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Casa Grande, Green Valley, Safford, Sierra Vista, Tucson, Yuma. Listed under: General health issues, Wellness.
+- **Living Skills — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Men to Men Support Group — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Military Sexual Trauma (F) — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: General health issues, Wellness.
+- **MOVE! — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Casa Grande, Green Valley, Safford, Sierra Vista, Tucson, Yuma. Listed under: Weight management, Wellness.
+- **Patient Health Education — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: General health issues, Chronic disease, Death & dying, Aging health issues, Pain management/chronic pain, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — serves Yuma County · (480) 768-6022 · addresses in Avondale, Mesa, Payson, Phoenix, Tucson, Yuma. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Peer Support & Counseling — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Wellness.
+- **Peer Support — Community Bridges, Inc.** — serves Yuma County · (480) 838-5550 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Pet Partners Visits — Pet Partners of Arizona** — serves Yuma County. Listed under: Wellness.
+- **PGA HOPE Golf Program — PGA HOPE Southwest** — serves Yuma County. Listed under: Wellness.
+- **Pharmacy — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Pain management/chronic pain, Wellness.
+- **Physical Medicine and Rehabilitation Services (PM&R) — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Casa Grande, Tucson, Yuma. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury, Aging health issues.
+- **Pregnancy & Women's Health Services — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Prescription Drug Collection Program — City of Yuma** — serves Yuma County · addresses in Yuma. Listed under: Wellness.
+- **Respite Care — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Senior Nutrition – Home-Delivered Meals — Catholic Community Services - Yuma** — serves Yuma County. Listed under: Aging health issues, Wellness.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: General health issues, Wellness, Aging health issues, Chronic disease, Dental.
+- **SMI Health Homes — Arizona Complete Health** — serves Yuma County. Listed under: Residential treatment, Medication-assisted treatment, General health issues, Chronic disease, Pain management/chronic pain, Wellness.
 - **SMI Supportive Housing/Residential Programs — Community Bridges, Inc.** — serves Yuma County · (480) 838-5550 · addresses in Benson, Holbrook, Yuma. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Spinal Cord Injury and Disorders Team — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **State Health Insurance Assistance Program (SHIP) — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: General health issues, Aging health issues, Wellness.
+- **Support Groups (Autism) — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Support Groups — MIKID** — serves Yuma County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — serves Yuma County · (520) 628-7837 · addresses in Tucson. Listed under: Wellness.
+- **Telephone Prescription Refill Request — Southern Arizona VA Health Care System** — serves Yuma County. Listed under: Wellness, Pain management/chronic pain, General health issues, Chronic disease.
+- **Training Programs — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transition Age Youth Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Transition Services — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Wellness.
+- **Valley of the Sun YMCA Military Outreach Initiative** — serves Yuma County · (602) 404-9622 · addresses in Chandler, El Mirage, Flagstaff, Glendale, Goodyear, Mesa. Listed under: Wellness.
+- **Veteran Services — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson. Listed under: General health issues, Aging health issues, Traumatic Brain Injury, Wellness.
+- **WACOG Aging, Disability and Family Helpline Resource Center — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (800) 782-1886. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **WACOG Benefits Enrollment Center (BEC) — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Aging health issues, Chronic disease, Wellness.
+- **WACOG Case Management — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Wellness, General health issues.
+- **Wellness Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Women's General Care — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Rehabilitation Care — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Chronic disease, General health issues, Pain management/chronic pain, Wellness, Aging health issues.
+- **Women's Specialty Care — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Wellness, Chronic disease, General health issues, Death & dying.
+- **Women’s Health Care Program — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Youth Council — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Services — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Yuma CBOC — Southern Arizona VA Health Care System** — serves Yuma County · (928) 317-9973 · addresses in Yuma. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Yuma Chapter- Daughters of the American Revolution** — serves Yuma County. Listed under: Wellness.
+- **Yuma County Animal Control — Yuma County Public Health Services District** — serves Yuma County. Listed under: Wellness.
+- **Yuma Rural Health Care Coordination Center — Southern Arizona VA Health Care System** — serves Yuma County · (928) 317-9973 · addresses in Yuma. Listed under: General health issues.
+- **Yuma Vet Center — Tucson Vet Center** — serves Yuma County · (928) 271-8700 · addresses in Yuma. Listed under: Wellness.
+
+## Statewide programs under Physical Health, which also serve Yuma County (95)
+
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: Traumatic Brain Injury, Wellness.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Wellness.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ADEQ Air Forecasting — Arizona Department of Environmental Quality** — statewide. Listed under: General health issues, Chronic disease, Wellness.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Wellness.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Wellness, General health issues.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Wellness.
+- **Ages and Stages Resources — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: General health issues.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Aging health issues.
+- **Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Chronic diseases, General health issues, Aging health issues, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — statewide · (480) 455-3957. Listed under: Chronic disease, Wellness.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Wellness.
+- **Arizona Heat Safety Resource Guide — Arizona Department of Health Services** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Arizona Immunization Program — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: General health issues.
+- **Arizona Long Term Care System (ALTCS) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (888) 621-6880. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Aging health issues.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Death & dying.
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Wellness, Death & dying, Aging health issues.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Wellness.
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Wellness.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **AZGeo Data Hub** — statewide. Listed under: General health issues, Wellness.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **BC Support Line — Be Connected** — statewide. Listed under: Wellness.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Wellness.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Billet Health Pharmacy Services** — statewide · (833) 224-5538. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: General health issues, Wellness.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Traumatic Brain Injury, Wellness.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Cancer Prevention & Control Programs — Arizona Department of Health Services** — statewide · (602) 364-0214. Listed under: Chronic disease, Death & dying.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Wellness.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Wellness.
+- **Chemical Emergency Preparedness — The American Red Cross** — statewide. Listed under: Wellness.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Wellness.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Wellness.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Wellness.
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Aging health issues.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness, Chronic disease.
+- **Disability Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **Disease Integration & Services — Arizona Department of Health Services** — statewide · (602) 364-4571. Listed under: General health issues, Chronic disease.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Wellness.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: Wellness.
+- **Fireworks Regulations in the City of Phoenix — Phoenix Fire Department** — statewide. Listed under: Wellness.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: General health issues, Aging health issues, Wellness, Pain management/chronic pain.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: General health issues.
+- **Healthcare Resources for Veterans and Service Providers — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Healthy Babies — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Wellness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General health issues, Wellness, Chronic disease.
+- **Home Care** — statewide. Listed under: Aging health issues, Chronic disease, Wellness.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Wellness, General health issues.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Death & dying.
+- **Life Enrichment Programs — Helping Hands for Freedom** — statewide. Listed under: Wellness.
+- **MAT Resources — Center for Applied Behavioral Health Policy** — statewide. Listed under: Medication-assisted treatment, Wellness.
+- **Medical Loan Closet — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **Mobile Spay/Neuter & Vaccination Clinics — The Parker Project** — statewide. Listed under: Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Wellness.
+- **Mobilize AZ — Blue Cross Blue Shield of Arizona** — statewide. Listed under: Chronic disease, Wellness.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Aging health issues.
+- **Obesity Prevention — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Office of Environmental Health — Arizona Department of Health Services** — statewide · (602) 364-3118. Listed under: Chronic disease, Wellness.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Prevent Mosquito-Borne Diseases — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Report Child Abuse or Neglect - Arizona Child Abuse Hotline — Arizona Department of Child Safety (DCS)** — statewide. Listed under: Wellness.
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Aging health issues.
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior Rehabilitation Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues, Aging health issues, Wellness.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **St. Joseph Baskets for Homeless Veterans — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Wellness.
+- **Summer Safety — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — statewide · (520) 795-9671. Listed under: Wellness.
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Wellness.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Vector-Borne & Zoonotic Diseases Program — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Wellness.
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Traumatic Brain Injury, General health issues.
 
 ## About this page
 

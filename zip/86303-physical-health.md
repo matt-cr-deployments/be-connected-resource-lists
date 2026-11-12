@@ -1,0 +1,80 @@
+# Be Connected Physical Health resources within 5 miles of 86303 (ZIP code 86303)
+
+## Within 5 miles of ZIP code 86303 (49)
+
+- **Supportive Housing — NAZCARE, Inc.** — about 3.3 miles from ZIP code 86303. 599 White Spar Rd, Prescott 86303 · (928) 442-9205. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — about 3.6 miles from ZIP code 86303. 237 S. Montezuma Street, Prescott 86303 · (928) 778-0150. Listed under: Wellness.
+- **North Star Youth Partnership — Catholic Charities Community Services** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Wellness.
+- **Safe Sitter Training — North Star Youth Partnership** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Wellness.
+- **Catholic Charities General Resources for Veterans — Catholic Charities Community Services** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **Medical Loan Closet — Catholic Charities Community Services** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: General health issues, Aging health issues, Chronic disease.
+- **Food Pantry/Community Closet — Catholic Charities Community Services** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **Arizona Families F.I.R.S.T. (AFF) — Catholic Charities Community Services** — about 3.9 miles from ZIP code 86303. 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **Dental Services — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Dental.
+- **NAVAHCS Recreation Therapy — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Community Living Center — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Contract Nursing Home Program — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Wellness.
+- **NAVAHCS Domiciliary — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Residential treatment, Inpatient, General health issues, Chronic disease, Wellness.
+- **General Surgery — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Health Promotion Disease Prevention (HPDP) Program — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Hospice and Palliative Care — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Death & dying.
+- **Kinesiotherapy — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Medical Foster Home — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Aging health issues, Wellness.
+- **Mental Health Residential Rehabilitation Treatment Program (MH RRTP) — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Detox, Residential treatment, General health issues, Chronic disease, Wellness.
+- **Physical Therapy — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Prosthetics and Sensory Aids Service — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Tobacco Cessation — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Medication-assisted treatment, Wellness.
+- **Audiology — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues.
+- **NAVAHCS Emergency Department — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues.
+- **Laboratory — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Nuclear Medicine — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Wellness.
+- **Oncology — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Podiatry — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Specialty Clinic Lab (Microbiology) — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Wellness.
+- **NAVAHCS Women’s Health Primary Care Provider — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Women's General Care — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **NAVAHCS Women's Specialty Care — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Death & dying, Wellness, Aging health issues, Pain management/chronic pain.
+- **Women's Rehabilitation Care — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain, Aging health issues.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **Homeless Patient Aligned Care Teams — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Aging health issues.
+- **NAVAHCS Health Care for Re-Entry Veterans Program — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Transplant Program — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Veteran Health Education — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues.
+- **NAVAHCS Greenhouse — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Wellness.
+- **Low Vision Clinic — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Physical Medicine and Rehabilitation (PM&R) Clinic — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Become a Patient at NAVAHCS — Northern Arizona VA Health Care System** — about 4.1 miles from ZIP code 86303. 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Substance Use Disorders — West Yavapai Guidance Clinic** — about 4.5 miles from ZIP code 86303. Walk In Crisis Location:, 642 Dameron Drive, Prescott 86301 · (928) 445-5211. Listed under: Residential treatment, Inpatient, General health issues, Wellness.
+- **Fitness Center — James Family Prescott YMCA** — about 4.9 miles from ZIP code 86303. 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: General health issues, Aging health issues, Chronic disease, Weight management, Wellness.
+- **Health and Safety Certifications — James Family Prescott YMCA** — about 4.9 miles from ZIP code 86303. 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness, General health issues.
+- **Just for Girls! — North Star Youth Partnership** — about 4.9 miles from ZIP code 86303. 750 Whipple Street, Prescott 86301. Listed under: Wellness.
+- **Aquatics Center — James Family Prescott YMCA** — about 4.9 miles from ZIP code 86303. 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness.
+- **Sports Programs — James Family Prescott YMCA** — about 4.9 miles from ZIP code 86303. 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness.
+- **Nutrition Counseling — Yavapai Regional Medical Center** — about 5.0 miles from ZIP code 86303. 930 Division Street, Prescott 86301 · (928) 771-5794. Listed under: General health issues, Aging health issues, Chronic disease, Weight management, Wellness.
+
+## The next nearest, between 5 and 25 miles of ZIP code 86303 (20 of 28 shown)
+
+- **The Spine Center at YRMC — Yavapai Regional Medical Center** — about 5.1 miles from ZIP code 86303. 1001 Division Street, Prescott 86301 · (928) 445-4818. Listed under: Aging health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **YRMC PhysicianCare — Yavapai Regional Medical Center** — about 5.1 miles from ZIP code 86303. YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **YRMC Emergency Services — Yavapai Regional Medical Center** — about 5.1 miles from ZIP code 86303. YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: Wellness, General health issues, Traumatic Brain Injury, Pain management/chronic pain, Death & dying, Chronic disease.
+- **The James Family Heart Center — Yavapai Regional Medical Center** — about 5.1 miles from ZIP code 86303. YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Physical Rehabilitation Services — Yavapai Regional Medical Center** — about 5.2 miles from ZIP code 86303. 1112 Iron Springs Rd., Prescott 86301. Listed under: General health issues, Wellness, Pain management/chronic pain, Chronic disease, Aging health issues, Traumatic Brain Injury.
+- **Cafe on Rosser Dining Room — Prescott Meals On Wheels** — about 5.4 miles from ZIP code 86303. 1280 E Rosser St, Prescott 86301 · (928) 445-7630. Listed under: Wellness.
+- **Dr. Cameron McKinley VA Veterans Center - Prescott** — about 7.3 miles from ZIP code 86303. 3180 Stillwater Drive, Suite A, Prescott 86305 · (928) 778-3469. Listed under: Wellness.
+- **Disease Prevention/Epidemiology Division — Yavapai County Community Health Services** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Environmental Health Division — Yavapai County Community Health Services** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Immunizations — Yavapai County Community Health Services** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Aging health issues, Wellness.
+- **Programs for Moms and Babies — Yavapai County Community Health Services** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Nutrition Services — Yavapai County Community Health Services** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: Wellness, Aging health issues.
+- **Behavioral Health** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Wellness.
+- **Family Planning/Reproductive Health** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: Wellness, General health issues.
+- **Medical Care** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Pediatrics** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Chronic disease, Wellness, Dental.
+- **Well Woman Health Check** — about 7.9 miles from ZIP code 86303. 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: Chronic disease, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — about 8.5 miles from ZIP code 86303. 7600 E. Florentine Road, Ste 201, Prescott Valley 86314 · (928) 772-1610. Listed under: Medication-assisted treatment, Wellness.
+- **The BreastCare Center at YRMC — Yavapai Regional Medical Center** — about 8.7 miles from ZIP code 86303. 7700 East Florentine Road, Prescott Valley 86314 · (928) 445-2700. Listed under: General health issues, Chronic disease, Wellness.
+- **YRMC’s Family Birthing Center — Yavapai Regional Medical Center** — about 8.7 miles from ZIP code 86303. 7700 East Florentine Road, Prescott Valley 86314 · (928) 445-2700. Listed under: General health issues, Wellness.
+
+## About this page
+
+This page lists what is near ZIP code 86303, and only that ZIP code. Distances run from the middle of ZIP code 86303 to the program's nearest address, so near the edge of a ZIP code they can be off by a mile or two. They apply only to a question that names ZIP code 86303. A program with several addresses is listed once, at its nearest. 651 programs in this directory have no street address and are not on this page. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

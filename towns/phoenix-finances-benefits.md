@@ -1,0 +1,161 @@
+# Finances & Benefits: Be Connected resources in Phoenix, Arizona
+
+- **161st Air Refueling Wing Airman & Family Readiness Program — 161st Air Refueling Wing - Arizona Air National Guard** — in Phoenix: 3200 E Old Tower Rd, Phoenix 85034 · (602) 302-9393. Listed under: Budgeting, Benefits, Food, Utilities, Car repair.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — in Phoenix: 3839 N 3rd Street, Phoenix 85012. Listed under: Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Car repair.
+- **Aid to Stranded Travelers — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Direct transportation assistance (e.g. provides transport to appointments), Food.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. Listed under: Benefits.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. Listed under: Benefits.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. Listed under: Benefits.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. Listed under: Benefits.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. Listed under: Benefits.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. Listed under: Benefits.
+- **Arizona Military Funeral Honors — Arizona Army National Guard** — in Phoenix: 5636 E. McDowell Road, Phoenix 85008 · (602) 629-4310. Listed under: Benefits.
+- **Arizona Military Honors — Arizona Army National Guard** — in Phoenix: 5636 E. McDowell Rd. M5340, Phoenix 85008 · (602) 629-4361. Listed under: Benefits.
+- **Arizona National Guard Family Programs — Arizona Army National Guard** — in Phoenix: 1335 N 52nd Street, M5701, Phoenix 85008 · (800) 233-7758. Listed under: Budgeting, Food, Financial planning.
+- **Arizona Self Help — Wildfire AZ** — in Phoenix: 340 E Palm Ln, Suite 315, Phoenix 85004 · (602) 604-0640. Listed under: Benefits, Food, Utilities.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — in Phoenix: 3131 W. Thomas Road, Phoenix 85017. Listed under: Food, Budgeting.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. Listed under: Benefits, Eviction prevention, Food, Rapid rehousing.
+- **Arizona/New Mexico Interpreting SuperCenter — Catholic Community Services - Deaf & Residential Services** — in Phoenix: 5025 E. Washington St, Suite #114, Phoenix 85034. Listed under: Benefits.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Benefits.
+- **AZPVA Veteran Benefits Service Office — Paralyzed Veterans of America Arizona Chapter** — in Phoenix: 1001 East Fairmount Ave, Suite 1055, Phoenix 85014 · (602) 627-3311. Listed under: Benefits.
+- **Beneficiary Travel (BT) program — Veterans Health Administration (VHA)** — in Phoenix: 650 East Indian School Road, Phoenix 85012 · (602) 277-5551. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Budgeting, Benefits, Food, Utilities, Rapid rehousing, Bus passes.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. Listed under: Budgeting, Benefits, Food, Utilities, Rapid rehousing, Bus passes.
+- **CATCH Program — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1125 W. Jackson St., Phoenix 85007 · (844) 691-5948. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Benefits, Budgeting, Financial planning.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Rooms A, B, D, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Benefits, Budgeting, Financial planning.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Benefits, Budgeting, Financial planning.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment, Benefits.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — in Phoenix: 338 N 15th Ave., Phoenix 85007 · (602) 688-6211. Listed under: Benefits.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. Listed under: Budgeting, Benefits, Food, Bus passes.
+- **Children’s Feeding Programs — St. Mary's Food Bank** — in Phoenix: 2831 N. 31st Avenue, Phoenix 85009 · (602) 242-3663. Listed under: Food.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — in Phoenix: 1366 E. Thomas Rd., Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Benefits, Food.
+- **Consumer Law — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Debt/credit counseling, Financial planning.
+- **Disability Compensation and Pension Benefits — Phoenix VA Health Care System** — in Phoenix: 3333 N Central Ave., Phoenix 85012 · (602) 277-5551. Listed under: Benefits.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Rapid rehousing, Food.
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 4520 N. Central Avenue, Suite 550, Phoenix 85012 · (602) 601-7200. Listed under: Benefits.
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 1130 East McDowell Road, Phoenix 85006 · (602) 261-7157. Listed under: Benefits.
+- **DreamBuilder: The Women’s Business Creator** — in Phoenix: 1221 N. Central Avenue, Phoenix 85004 · (602) 262-4636. Listed under: Benefits.
+- **Empowering Family Caregivers Educational Series — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014. Listed under: Financial planning, Benefits.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 914 W. Hatcher Road, Phoenix 85021 · (602) 534-2433. Listed under: Food, Utilities, Eviction prevention, Benefits.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 4732 S. Central Ave., Phoenix 85040 · (602) 534-2433. Listed under: Food, Utilities, Eviction prevention, Benefits.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 3454 N. 51st Ave., Phoenix 85031 · (602) 534-2433. Listed under: Food, Utilities, Eviction prevention, Benefits.
+- **Family Services Department — Habitat for Humanity - Central Arizona** — in Phoenix: 2830 W. Glendale Ave, Phoenix 85051 · (602) 268-9022. Listed under: Benefits, Budgeting, Debt/credit counseling, Financial planning.
+- **Food & Nutrition Program — Black Family and Child Services of Arizona** — in Phoenix: 1522 East Southern Avenue, Phoenix 85040 · (602) 243-1773. Listed under: Food.
+- **Food Pantry Services — AllThrive365** — in Phoenix: 1201 E. Thomas Road, Phoenix 85014 · (623) 979-3911. Listed under: Benefits, Food.
+- **Get Help Caring for your Pet - AHS Pet Resource Center — Arizona Humane Society** — in Phoenix: 9226 N. 13th Avenue/1311 W. Hatcher Road, Phoenix 85021 · (602) 997-7585. Listed under: Benefits, Food.
+- **Get Help Caring for your Pet - AHS Pet Resource Center — Arizona Humane Society** — in Phoenix: 1521 W. Dobbins Rd., Phoenix 85041 · (602) 997-7585. Listed under: Benefits, Food.
+- **Harvest Compassion Center Food & Clothing Bank - Maryvale** — in Phoenix: 4002 N. 67th Avenue, Phoenix 85033. Listed under: Food.
+- **Harvest Compassion Center Food & Clothing Bank - Phoenix** — in Phoenix: 4744 E Thunderbird Rd, Suite 9, Phoenix 85032. Listed under: Food.
+- **Harvest Compassion Center Food & Clothing Donations** — in Phoenix: 4744 E Thunderbird Rd, Suite 9, Phoenix 85032. Listed under: Food.
+- **Health Information and Education Center — Raising Special Kids** — in Phoenix: Phoenix Office, 5025 E. Washington St., #204, Phoenix 85034 · (602) 242-4366. Listed under: Benefits.
+- **Helping Women & Families Thrive — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Benefits, Food, Utilities, Bus passes, Budgeting, Debt/credit counseling.
+- **Hope Coach Mobile Outreach — Phoenix Rescue Mission** — in Phoenix: 1540 W. Van Buren St., Phoenix 85007 · (602) 233-3000. Listed under: Food.
+- **Hope Women's Center Boutiques** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Budgeting, Benefits.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Benefits, Rapid rehousing, Food, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **HSC Resources — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: Budgeting.
+- **IL Skills Training — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: Budgeting.
+- **Independent Living Services — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: Benefits.
+- **Independent Living Services — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Benefits.
+- **Independent Living Services — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Independent Living Workshop — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Budgeting, Benefits.
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Eviction prevention, Financial planning, Budgeting.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Benefits, Taxes.
+- **MANA House — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Budgeting, Debt/credit counseling, Benefits, Rapid rehousing, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **MANA Outreach Center (MOC) — Catholic Charities MANA House** — in Phoenix: 1125 W Jackson Street, Classroom B, Phoenix 85007 · (602) 254-6785. Listed under: Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **Mental Health Outpatient Services — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Benefits, Eviction prevention, Food, Utilities.
+- **Miss Mary's Closet — Black Family and Child Services of Arizona** — in Phoenix: 1522 East Southern Avenue, Phoenix 85040 · (602) 243-1773. Listed under: Budgeting.
+- **Mobile Outreach — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Benefits, Food, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 4005 N. 16th St, Phoenix 85016 · (602) 535-4444. Listed under: Benefits, Budgeting, Food, Utilities.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 2929 N. 75th Ave., Phoenix 85033 · (602) 535-4444. Listed under: Benefits, Budgeting, Food, Utilities.
+- **National Memorial Cemetery of Arizona — National Cemetery Administration (NCA)** — in Phoenix: 23029 North Cave Creek Road, Phoenix 85024 · (480) 513-3600. Listed under: Benefits.
+- **Nutrition Services Program - Congregate Nutrition Site (18-60 with a disability) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Congregate Nutrition Site (18-60 with a disability) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004 · (602) 258-4822. Listed under: Food.
+- **Nutrition Services Program - Congregate Nutrition Site (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014-5739 · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Congregate Nutrition Site (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave., #100, Phoenix 85004-1448 · (602) 258-4822. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (18-60 with a disability) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (18-60 with a disability) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004 · (602) 258-4822. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Food.
+- **Nutrition Services Program - Home Delivery (over 60) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004 · (602) 258-4822. Listed under: Food.
+- **Operation Healing Journey (OHJ) — Honor House** — in Phoenix: Unavailable, Phoenix 85021. Listed under: Benefits.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Benefits, Food, Utilities, Eviction prevention.
+- **Phoenix 32nd Street VA Clinic — Phoenix VA Health Care System** — in Phoenix: 400 N. 32nd Street, Phoenix 85008 · (602) 914-2900. Listed under: Medication-assisted treatment, Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4635 S Central Ave, Phoenix 85040 · (602) 771-0630. Listed under: Benefits.
+- **Phoenix Silvercrest Senior Citizens' Residence & Laura Danieli Senior Activity Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Benefits, Food, Bus passes.
+- **Phoenix Vet Center — Tucson Vet Center** — in Phoenix: 4020 North 20th Street, Suite 110, Phoenix 85016 · (602) 640-2981. Listed under: Benefits.
+- **Project DreamCatcher — Thunderbird School of Global Management** — in Phoenix: 400 E. Van Buren Street, Suite 900, Phoenix 85004 · (602) 496-7000. Listed under: Benefits.
+- **Public Benefits Outreach Program (PBO) — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Benefits.
+- **Recording DD-214 — Maricopa County** — in Phoenix: 111 S Third Ave, Phoenix 85003 · (602) 506-3535. Listed under: Benefits.
+- **Respite Care — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 509-6669. Listed under: Benefits.
+- **Senior Nutrition Services — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Food.
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — in Phoenix: 5636 E. McDowell Road, Phoenix 85008 · (602) 267-2700. Listed under: Benefits.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — in Phoenix: 1500 East Thomas Rd., Suite 106, Phoenix 85014 · (602) 248-6040. Listed under: Detox, Residential treatment, Medication-assisted treatment, Benefits, Eviction prevention, Rapid rehousing, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **Serving Those Who Have Served — Southwest Truck Driver Training, Inc.** — in Phoenix: 2323 S. 51st Ave., Phoenix 85043 · (833) 234-3848. Listed under: Benefits.
+- **St. Vincent de Paul Phoenix Thrift Stores — St Vincent de Paul of Phoenix** — in Phoenix: 3547 W. Thunderbird Rd., Phoenix 85053 · (623) 931-9901. Listed under: Benefits, Food.
+- **St. Vincent de Paul Phoenix Thrift Stores — St Vincent de Paul of Phoenix** — in Phoenix: 2945 E. Bell Rd., Phoenix 85032 · (602) 493-8126. Listed under: Benefits, Food.
+- **St. Vincent de Paul Phoenix Thrift Stores — St Vincent de Paul of Phoenix** — in Phoenix: 8231 N. 7th St., Phoenix 85020 · (602) 861-2634. Listed under: Benefits, Food.
+- **State Health Insurance Assistance Program (SHIP) — DES Division of Aging and Adult Services** — in Phoenix: 1789 W. Jefferson St. (Site Code 950A), Phoenix 85007 · (602) 264-2255. Listed under: Benefits.
+- **State Health Insurance Assistance Program (SHIP) — DES Division of Aging and Adult Services** — in Phoenix: 1366 E. Thomas Road, Suite 108, Phoenix 85014 · (602) 264-2255. Listed under: Benefits.
+- **State Health Insurance Assistance Program (SHIP) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave., #100, Phoenix 85004 · (602) 258-4822. Listed under: Benefits.
+- **Supportive Services for Veteran Families — U.S. VETS - Phoenix** — in Phoenix: 3507 North Central Avenue, Suite 302, Phoenix 85012 · (602) 757-9723. Listed under: Eviction prevention, Rapid rehousing, Benefits.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Food, Benefits, Eviction prevention, Bus passes.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: Food, Benefits, Eviction prevention, Bus passes.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Food, Benefits, Eviction prevention, Bus passes.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Food, Benefits, Eviction prevention, Bus passes.
+- **SVDP Exiting Homelessness — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Benefits, Eviction prevention, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments).
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Food, Utilities.
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: Food, Utilities.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Eviction prevention, Utilities.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Benefits, Eviction prevention, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments), Financial planning.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Benefits, Eviction prevention, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments), Financial planning.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Benefits, Eviction prevention, Food, Utilities, Direct transportation assistance (e.g. provides transport to appointments), Financial planning.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Utilities, Eviction prevention, Benefits.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Benefits.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Benefits.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 2739 E Washington St, Phoenix 85034 · (602) 850-6900. Listed under: Benefits.
+- **SVdP Urban Farm Program — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Food.
+- **SVdP Urban Farm Program — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Benefits, Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Benefits, Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Benefits, Food.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Benefits, Food.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1849 W Greenway, Phoenix 85023 · (602) 866-0647. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 24 E. Mohave St., Phoenix 85004 · (602) 256-4535. Listed under: Benefits, Food, Rapid rehousing.
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Benefits, Eviction prevention, Food, Utilities.
+- **The Salvation Army Family Thrift Stores Phoenix Metro — The Salvation Army Phoenix Metro** — in Phoenix: 24 E. Mohave St., Phoenix 85004 · (602) 256-4535. Listed under: Budgeting, Benefits.
+- **The Salvation Army Family Thrift Stores Phoenix Metro — The Salvation Army Phoenix Metro** — in Phoenix: 1849 W Greenway, Phoenix 85023 · (602) 866-0647. Listed under: Budgeting, Benefits.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Benefits, Food, Utilities.
+- **The Salvation Army Kroc Center — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Benefits, Budgeting, Financial planning.
+- **The Salvation Army Phoenix Emergency Family Shelter — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Benefits.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 N. 4th Ave., Phoenix 85003 · (602) 251-2000. Listed under: Food, Benefits, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Food, Benefits, Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Food, Benefits.
+- **The Salvation Army's Project H.O.P.E. — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Benefits, Food.
+- **Thunderbird VA Clinic — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave, Phoenix 85021 · (602) 633-6900. Listed under: Benefits.
+- **Title III & VI National Family Caregiver Support Program (NFCSP) — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Benefits.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — in Phoenix: Transforming Lives Center (Men's Campus), 1801 S. 35th Ave., Phoenix 85009 · (602) 346-3384. Listed under: Benefits.
+- **Transition Age Youth Program — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Benefits.
+- **VA Benefits for Gulf War Veterans — Veterans Benefits Administration (VBA)** — in Phoenix: 3333 North Central Avenue, Phoenix 85012 · (800) 827-1000. Listed under: Benefits.
+- **VA Benefits for Gulf War Veterans — Veterans Benefits Administration (VBA)** — in Phoenix: 23029 North Cave Creek Road, Phoenix 85024 · (800) 827-1000. Listed under: Benefits.
+- **VA's Pension Program — Veterans Benefits Administration (VBA)** — in Phoenix: 3333 North Central Avenue, Phoenix 85012 · (800) 827-1000. Listed under: Benefits.
+- **Valley Metro Mobility Center** — in Phoenix: 4600 E. Washington, Suite 101, Phoenix 85034 · (602) 716-2100. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **Valley Metro Reduced Fare Program & ADA Platinum Pass** — in Phoenix: 4600 E. Washington, Ste. 101, Phoenix 85034 · (602) 716-2100. Listed under: Direct transportation assistance (e.g. provides transport to appointments).
+- **Valley Metro System Accessibility** — in Phoenix: 101 N 1st Ave, Ste 1400, Phoenix 85003 · (602) 253-5000. Listed under: Bus passes, Direct transportation assistance (e.g. provides transport to appointments).
+- **VBA Phoenix Regional Office (RO) — Veterans Benefits Administration (VBA)** — in Phoenix: 3333 North Central Avenue, Phoenix 85012 · (800) 827-1000. Listed under: Benefits.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Budgeting, Benefits, Food, Utilities, Financial planning, Bus passes.
+- **Veterans Advantage Guaranteed Loans — U.S. Small Business Administration (SBA)** — in Phoenix: Arizona District Office, 2828 North Central Ave Suite 800, Phoenix 85004 · (602) 745-7230. Listed under: Benefits.
+- **Veterans Transportation Service (VTS) — Veterans Health Administration (VHA)** — in Phoenix: 650 East Indian School Road, Phoenix 85012 · (602) 277-5551. Listed under: Benefits, Direct transportation assistance (e.g. provides transport to appointments).
+- **Victim Compensation — Arizona Criminal Justice Commission** — in Phoenix: 301 W. Jefferson, 9th Floor, Phoenix 85003 · (602) 506-4955. Listed under: Benefits.
+- **Wellness Program — MIKID** — in Phoenix: Phoenix Corporate Office, 7816 N. 19th Avenue, Phoenix 85021 · (520) 882-0142. Listed under: Benefits.
+
+## About this page
+
+This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

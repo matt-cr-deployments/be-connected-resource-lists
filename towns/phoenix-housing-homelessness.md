@@ -1,0 +1,126 @@
+# Housing & Homelessness: Be Connected resources in Phoenix, Arizona
+
+- **161st Air Refueling Wing Airman & Family Readiness Program — 161st Air Refueling Wing - Arizona Air National Guard** — in Phoenix: 3200 E Old Tower Rd, Phoenix 85034 · (602) 302-9393. Listed under: Homelessness, Emergency shelter, Eviction prevention.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — in Phoenix: 3839 N 3rd Street, Phoenix 85012. Listed under: Finding housing, Affordable housing programs, Homelessness, Eviction prevention, Home renovation or repair, Home buying.
+- **Affordable Housing Opportunities — AllThrive365** — in Phoenix: 5330 North 21st Avenue, Phoenix 85015. Listed under: Affordable housing programs, Finding housing.
+- **Affordable Housing Opportunities — AllThrive365** — in Phoenix: 615 West Pierson, Phoenix 85014. Listed under: Affordable housing programs, Finding housing.
+- **Affordable Housing Opportunities — AllThrive365** — in Phoenix: 454 East Roeser Road, Phoenix 85040. Listed under: Affordable housing programs, Finding housing.
+- **AHCCCS Housing Program — HOM, Inc.** — in Phoenix: 5326 E Washington St, Phoenix 85034 · (602) 265-4640. Listed under: Finding housing, Homelessness, Permanent supportive housing.
+- **Aid to Stranded Travelers — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness, Emergency shelter.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Finding housing.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. Listed under: Finding housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1125 W. Jackson St., Phoenix 85007 · (844) 691-5948. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Rooms A, B, D, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Homelessness, Transitional housing, Permanent supportive housing.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment, Transitional housing, Permanent supportive housing, Homelessness.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — in Phoenix: 338 N 15th Ave., Phoenix 85007 · (602) 688-6211. Listed under: Emergency shelter, Homelessness.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Corps Community Centers Phoenix Maryvale — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 4420 N 51st Ave, Phoenix 85031. Listed under: Affordable housing programs, Homelessness, Emergency shelter.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Finding housing, Homelessness, Emergency shelter, Rapid re-housing.
+- **Emergency Shelter — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Avenue, Phoenix 85007 · (602) 229-1241. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Emergency Shelter — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Family Housing Hub — UMOM New Day Centers** — in Phoenix: 3307 E. Van Buren Street, #108, Phoenix 85008 · (602) 595-8700. Listed under: Homelessness, Finding housing, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Family Housing Hub — UMOM New Day Centers** — in Phoenix: 10550 W Mariposa St, Phoenix 85037 · (602) 595-8700. Listed under: Homelessness, Finding housing, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 914 W. Hatcher Road, Phoenix 85021 · (602) 534-2433. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 4732 S. Central Ave., Phoenix 85040 · (602) 534-2433. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 3454 N. 51st Ave., Phoenix 85031 · (602) 534-2433. Listed under: Affordable housing programs, Homelessness, Eviction prevention, Foreclosure prevention, Home renovation or repair.
+- **Family Services Department — Habitat for Humanity - Central Arizona** — in Phoenix: 2830 W. Glendale Ave, Phoenix 85051 · (602) 268-9022. Listed under: Home buying, Home renovation or repair.
+- **Free Arizona ID for Veterans — Homeless ID Project** — in Phoenix: 206 S 12th Ave, Phoenix 85007 · (602) 223-3427. Listed under: Homelessness.
+- **Grand Veterans Village — U.S. VETS - Phoenix** — in Phoenix: 3400 NW Grand Ave, Phoenix 85017 · (602) 427-0404. Listed under: Affordable housing programs, Homelessness.
+- **Halle Women's Center — UMOM New Day Centers** — in Phoenix: 3333 E Van Buren, Phoenix 85008. Listed under: Homelessness, Emergency shelter.
+- **Harvest Compassion Center Food & Clothing Bank - Maryvale** — in Phoenix: 4002 N. 67th Avenue, Phoenix 85033. Listed under: Homelessness.
+- **Harvest Compassion Center Food & Clothing Bank - Phoenix** — in Phoenix: 4744 E Thunderbird Rd, Suite 9, Phoenix 85032. Listed under: Homelessness.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 333 W. Indian School Rd., Phoenix 85013 · (602) 776-9000. Listed under: Homelessness.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: Homelessness.
+- **Health Care Services for the Homeless — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: Homelessness.
+- **Helping Women & Families Thrive — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Eviction prevention.
+- **Homeless Services program — DES Division of Aging and Adult Services** — in Phoenix: 3307 E Van Buren St, No 108, Phoenix 85008 · (602) 595-8700. Listed under: Finding housing, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **Hope Coach Mobile Outreach — Phoenix Rescue Mission** — in Phoenix: 1540 W. Van Buren St., Phoenix 85007 · (602) 233-3000. Listed under: Homelessness, Emergency shelter.
+- **Housing for Hope — Catholic Charities Community Services** — in Phoenix: Corporate Office, 4747 N. 7th Ave, Phoenix 85013. Listed under: Affordable housing programs, Homelessness.
+- **Housing Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Avenue, Phoenix 85007 · (602) 256-6945. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Rapid re-housing.
+- **HSC Resources — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Hygiene Kits for those in need — Shoebox Ministry** — in Phoenix: 13645 N. 32nd Street, Phoenix 85032 · (480) 905-1610. Listed under: Homelessness.
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — in Phoenix: 5031 E Washington St, Phoenix 85034. Listed under: Finding housing.
+- **Independent Living Services — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: Finding housing, Home renovation or repair.
+- **Independent Living Services — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Finding housing, Home renovation or repair.
+- **Independent Living Workshop — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Finding housing.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 333 W. Indian School Rd., Phoenix 85013 · (602) 776-9000. Listed under: Homelessness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: Homelessness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: Homelessness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — in Phoenix: 210 S. 12th Ave., Phoenix 85007 · (602) 254-4282. Listed under: Homelessness.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012 · (602) 277-5551. Listed under: Finding housing, Homelessness, Emergency shelter, Permanent supportive housing, Transitional housing, Rapid re-housing.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 5040 N 15th Ave, Phoenix 85015 · (602) 234-7080. Listed under: Finding housing, Homelessness, Emergency shelter, Permanent supportive housing, Transitional housing, Rapid re-housing.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 9250 W. Thomas Rd., Phoenix 85037 · (623) 772-4000. Listed under: Finding housing, Homelessness, Emergency shelter, Permanent supportive housing, Transitional housing, Rapid re-housing.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave., Phoenix 85021 · (602) 633-6900. Listed under: Finding housing, Homelessness, Emergency shelter, Permanent supportive housing, Transitional housing, Rapid re-housing.
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Foreclosure prevention, Eviction prevention, Affordable housing programs, Finding housing.
+- **MANA House — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing, Rapid re-housing.
+- **MANA Outreach Center (MOC) — Catholic Charities MANA House** — in Phoenix: 1125 W Jackson Street, Classroom B, Phoenix 85007 · (602) 254-6785. Listed under: Homelessness.
+- **Mental Health Outpatient Services — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Emergency shelter, Eviction prevention, Home renovation or repair.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 1124 N 3rd St, Phoenix 85004. Listed under: Homelessness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 3333 East Van Buren Street, Phoenix 85008. Listed under: Homelessness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — in Phoenix: 420 W. Watkins Rd., Phoenix 85003. Listed under: Homelessness.
+- **Mobile Outreach — Catholic Charities MANA House** — in Phoenix: 2422 W. Holly St., Phoenix 85009 · (602) 254-6785. Listed under: Homelessness.
+- **My Beautiful PHX Cleanup Kits — Keep Phoenix Beautiful** — in Phoenix: 1822 W Pierson St, Phoenix 85015. Listed under: Home renovation or repair.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 4005 N. 16th St, Phoenix 85016 · (602) 535-4444. Listed under: Finding housing, Affordable housing programs.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 2929 N. 75th Ave., Phoenix 85033 · (602) 535-4444. Listed under: Finding housing, Affordable housing programs.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — in Phoenix: 3522 N. Third Avenue, Phoenix 85013 · (602) 776-7676. Listed under: Homelessness.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — in Phoenix: 220 S. 12th Ave., Phoenix 85007 · (602) 258-8282. Listed under: Homelessness.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Emergency shelter, Eviction prevention.
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (844) 691-5948. Listed under: Detox, Medication-assisted treatment, Homelessness, Transitional housing, Finding housing.
+- **Permanent Housing — U.S. VETS - Phoenix** — in Phoenix: 3400 NW Grand Ave, Phoenix 85017. Listed under: Permanent supportive housing.
+- **Phoenix Human Services Department Homeless Programs** — in Phoenix: 3454 N. 51st Ave., Phoenix 85031 · (602) 534-2433. Listed under: Homelessness, Finding housing, Emergency shelter, Rapid re-housing.
+- **Phoenix Human Services Department Homeless Programs** — in Phoenix: 914 W. Hatcher Road, Phoenix 85021 · (602) 534-2433. Listed under: Homelessness, Finding housing, Emergency shelter, Rapid re-housing.
+- **Phoenix Human Services Department Homeless Programs** — in Phoenix: 4732 S. Central Ave., Phoenix 85040 · (602) 534-2433. Listed under: Homelessness, Finding housing, Emergency shelter, Rapid re-housing.
+- **Phoenix Silvercrest Senior Citizens' Residence & Laura Danieli Senior Activity Center — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Homelessness, Permanent supportive housing.
+- **Project H3: Home, Health Hope — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Public Information Office — Arizona Department of Emergency and Military Affairs (DEMA)** — in Phoenix: 5636 E. McDowell Road, Phoenix 85008 · (602) 267-2700. Listed under: Emergency shelter.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — in Phoenix: 1500 East Thomas Rd., Suite 106, Phoenix 85014 · (602) 248-6040. Listed under: Detox, Residential treatment, Medication-assisted treatment, Homelessness, Transitional housing, Finding housing, Affordable housing programs, Eviction prevention, Rapid re-housing.
+- **Supportive Services for Veteran Families — U.S. VETS - Phoenix** — in Phoenix: 3507 North Central Avenue, Suite 302, Phoenix 85012 · (602) 757-9723. Listed under: Finding housing, Rapid re-housing, Homelessness, Emergency shelter, Transitional housing, Affordable housing programs.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Homelessness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: Homelessness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Homelessness.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness.
+- **SVDP Exiting Homelessness — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness, Eviction prevention, Finding housing, Transitional housing, Emergency shelter.
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Eviction prevention.
+- **SVDP Food Bank and Community Pantries — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: Eviction prevention.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Eviction prevention.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Homelessness, Eviction prevention, Transitional housing, Permanent supportive housing.
+- **SVDP Rent and Utility Bill Assistance — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Homelessness, Eviction prevention.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Finding housing, Transitional housing, Homelessness, Emergency shelter.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Finding housing, Transitional housing, Homelessness, Emergency shelter.
+- **SVDP Shelter and Transitional Housing — St Vincent de Paul of Phoenix** — in Phoenix: 2739 E Washington St, Phoenix 85034 · (602) 850-6900. Listed under: Finding housing, Transitional housing, Homelessness, Emergency shelter.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 267-4100. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Homelessness, Emergency shelter, Finding housing.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 1849 W Greenway, Phoenix 85023 · (602) 866-0647. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — in Phoenix: 24 E. Mohave St., Phoenix 85004 · (602) 256-4535. Listed under: Homelessness, Emergency shelter.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Homelessness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 628 North 3rd Avenue, Phoenix 85003 · (602) 252-4478. Listed under: Homelessness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Homelessness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — in Phoenix: 1351 E. Broadway Rd., Phoenix 85040 · (602) 276-7396. Listed under: Homelessness.
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Emergency shelter, Finding housing, Rapid re-housing, Eviction prevention.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — in Phoenix: 4318 West Clarendon, Phoenix 85031 · (602) 233-9272. Listed under: Homelessness.
+- **The Salvation Army Phoenix Emergency Family Shelter — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Emergency shelter, Homelessness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 N. 4th Ave., Phoenix 85003 · (602) 251-2000. Listed under: Finding housing, Affordable housing programs.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — in Phoenix: 613 North 4th Avenue, Phoenix 85003 · (602) 251-2000. Listed under: Finding housing, Affordable housing programs.
+- **The Salvation Army's Project H.O.P.E. — The Salvation Army Phoenix Metro** — in Phoenix: 2707 E. Van Buren St., Phoenix 85008 · (602) 685-3208. Listed under: Finding housing, Homelessness, Emergency shelter.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — in Phoenix: Transforming Lives Center (Men's Campus), 1801 S. 35th Ave., Phoenix 85009 · (602) 346-3384. Listed under: Homelessness, Emergency shelter.
+- **Transitional Housing — Chrysalis Shelter** — in Phoenix: 2055 W. Northern Ave, Phoenix 85021. Listed under: Finding housing, Affordable housing programs, Homelessness, Transitional housing.
+- **UMOM Housing Programs — UMOM New Day Centers** — in Phoenix: 3333 E Van Buren, Phoenix 85008. Listed under: Homelessness, Affordable housing programs, Finding housing, Permanent supportive housing, Rapid re-housing.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Finding housing, Affordable housing programs, Homelessness, Emergency shelter, Transitional housing, Permanent supportive housing.
+- **Veterans Furniture Center** — in Phoenix: 2319 W Holly St, Phoenix 85009 · (623) 232-3880. 
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — in Phoenix: 4136 N. 75th Ave, #116, Phoenix 85033 · (623) 247-1234. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Homelessness, Finding housing.
+- **Workforce/Employment Assistance Services — UMOM New Day Centers** — in Phoenix: 3333 E Van Buren, Phoenix 85008. Listed under: Homelessness.
+
+## About this page
+
+This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

@@ -1,0 +1,205 @@
+# Physical Health in Mohave County: Be Connected resources
+
+## Listed as serving Mohave County under Physical Health (99)
+
+- **#YOUmatter — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Death & dying, Wellness.
+- **Age Friendly Arizona — Maricopa Association of Governments (MAG)** — serves Mohave County · (602) 254-6300. Listed under: Wellness.
+- **Arizona Families F.I.R.S.T. (AFF) — Catholic Charities Community Services** — serves Mohave County · (928) 708-7295 · addresses in Bullhead City, Flagstaff, Prescott. Listed under: Wellness.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Mohave County · addresses in Phoenix, Surprise. Listed under: Wellness.
+- **Become a Patient at NAVAHCS — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **BHC Shelter (Legacy Foundation Christine Stamper Center for Help & Hope) — Catholic Charities Community Services** — serves Mohave County · (928) 708-7295 · addresses in Bullhead City. Listed under: Wellness.
+- **Bullhead City - Lunch Bunch — National Multiple Sclerosis Society** — serves Mohave County · (928) 768-2668 · addresses in Bullhead City. Listed under: Chronic disease, Wellness.
+- **Care Services and Assistance — WACOG Area Agency on Aging (Region IV)** — serves Mohave County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Caregiving Services — Billet Health** — serves Mohave County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, General health issues, Wellness.
+- **Catholic Charities General Resources for Veterans — Catholic Charities Community Services** — serves Mohave County · (928) 634-4254 · addresses in Bullhead City, Cottonwood, Flagstaff, Prescott. Listed under: Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Mohave County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Wellness.
+- **Chemehuevi Clinic — Colorado River Service Unit (CRSU) - Parker Indian Health Center** — serves Mohave County · (760) 858-4790 · addresses in Havasu Lake. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **Community Engagement for MAT Services — Community Medical Services** — serves Mohave County. Listed under: Medication-assisted treatment, Wellness.
+- **Community Partners — Pet Partners of Arizona** — serves Mohave County. Listed under: Wellness.
+- **COPD-Better Breathers Club — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Chronic disease, Wellness.
+- **Correctional Health Services — Community Medical Services** — serves Mohave County. Listed under: Wellness.
+- **Dementia Connection of Havasu — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Environmental Health Division — Mohave County Department of Public Health** — serves Mohave County · (928) 757-0901 · addresses in Bullhead City, Kingman, Lake Havasu City, Littlefield. Listed under: General health issues.
+- **Family Support Services — Hospice of Havasu** — serves Mohave County · (928) 453-2111 · addresses in Ft. Mohave, Lake Havasu City. Listed under: Wellness.
+- **Fibromyalgia and Chronic Fatigue Syndrome Support Group — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Chronic disease, Pain management/chronic pain.
+- **Havasu Strong & Steady Fitness and Support Groups — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Chronic disease, Wellness.
+- **Head Start & Early Head Start — Western Arizona Council of Governments (WACOG)** — serves Mohave County. Listed under: Wellness.
+- **Health & Economic Security — Community Legal Services** — serves Mohave County. Listed under: General health issues, Wellness.
+- **Home Health — Billet Health** — serves Mohave County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Homeless Patient Aligned Care Teams — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Aging health issues.
+- **Hospice Care in Mohave County — Hospice of Havasu** — serves Mohave County · (928) 453-2111 · addresses in Ft. Mohave, Lake Havasu City. Listed under: Death & dying.
+- **Hospice Care Services — Billet Health** — serves Mohave County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Hospice Resources — Hospice of Havasu** — serves Mohave County · (928) 453-2111 · addresses in Ft. Mohave, Lake Havasu City. Listed under: Wellness.
+- **Human Services Department — City of Bullhead City** — serves Mohave County · (928) 763-9400 · addresses in Bullhead City. Listed under: Aging health issues, Wellness.
+- **Irene Benn Health Clinic — Colorado River Service Unit (CRSU) - Parker Indian Health Center** — serves Mohave County · (760) 858-4790 · addresses in Moapa. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **JAVC Operation 6: I got your back! — Jerry Ambrose Veterans Council (JAVC)** — serves Mohave County · addresses in Kingman. Listed under: Aging health issues, General health issues, Wellness.
+- **La Paz Specialty Clinics (Lake Havasu) — La Paz Regional Hospital & Clinics** — serves Mohave County. Listed under: General health issues, Wellness, Aging health issues, Chronic disease, Pain management/chronic pain.
+- **Laboratory — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Anthem, Cottonwood, Flagstaff, Holbrook, Kayenta, Kingman. Listed under: General health issues, Wellness.
+- **Lake Havasu Vet Center — Tucson Vet Center** — serves Mohave County · (928) 505-0394 · addresses in Lake Havasu. Listed under: Wellness.
+- **Lewis Kingman- Daughters of the American Revolution** — serves Mohave County. Listed under: Wellness.
+- **Living Skills — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Living Well With Chronic Pain — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Chronic disease, Pain management/chronic pain.
+- **Low Vision Clinic — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Medical Foster Home — Northern Arizona VA Health Care System** — serves Mohave County. Listed under: General health issues, Aging health issues.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — serves Mohave County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Men to Men Support Group — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Mohave County Public Fiduciary** — serves Mohave County · (928) 753-9141 · addresses in Kingman. Listed under: Aging health issues, General health issues, Death & dying.
+- **NAVAHCS Health Care for Re-Entry Veterans Program — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **NAVAHCS Holbrook PTOC — Northern Arizona VA Health Care System** — serves Mohave County. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Aging health issues.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Anthem, Chinle, Cottonwood, Flagstaff, Holbrook, Hotevilla. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **NAVAHCS Kingman CBOC — Northern Arizona VA Health Care System** — serves Mohave County · (928) 718-7300 · addresses in Kingman. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **NAVAHCS Lake Havasu City CBOC — Northern Arizona VA Health Care System** — serves Mohave County · (928) 505-7100 · addresses in Lake Havasu City. Listed under: Aging health issues, Chronic disease, Pain management/chronic pain, General health issues, Wellness.
+- **NAVAHCS Women's Specialty Care — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Death & dying, Wellness, Aging health issues, Pain management/chronic pain.
+- **NAVAHCS Women’s Health Primary Care Provider — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **New Directions Wellness Center — NAZCARE, Inc.** — serves Mohave County · (928) 753-1213 · addresses in Kingman. Listed under: General health issues, Wellness.
+- **North Country HealthCare Behavioral Health Services** — serves Mohave County · (928) 522-9400 · addresses in 85936, Ash Fork, Flagstaff, Holbrook, Kingman, Lake Havasu City. Listed under: Wellness, General health issues.
+- **North Country HealthCare Primary Care & Family Medicine** — serves Mohave County · (928) 522-9400 · addresses in 85936, Ash Fork, Bullhead City, Flagstaff, Grand Canyon, Holbrook. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **North Country HealthCare Women’s Health** — serves Mohave County · (928) 637-2305 · addresses in Ash Fork, Bullhead City, Flagstaff, Payson, Williams. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Nutrition and Food Service — Northern Arizona VA Health Care System** — serves Mohave County. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Oncology — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: Chronic disease.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — serves Mohave County · (602) 258-3600 · addresses in Buckeye, Bullhead City, Flagstaff, Kingman, Lake Havasu City, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Peach Springs Health Center (PSHC) — Colorado River Service Unit (CRSU) - Parker Indian Health Center** — serves Mohave County · (928) 769-2900 · addresses in Peach Springs. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **Peer Support Services — Community Medical Services** — serves Mohave County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Wellness.
+- **Permanent Housing Services — Catholic Charities Community Services** — serves Mohave County · (928) 708-7295 · addresses in Bullhead City, Cottonwood, Flagstaff. Listed under: Wellness.
+- **Pet Partners Visits — Pet Partners of Arizona** — serves Mohave County. Listed under: Wellness.
+- **Physical Medicine and Rehabilitation (PM&R) Clinic — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Podiatry — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — serves Mohave County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Public Health Emergency Preparedness Program — Mohave County Department of Public Health** — serves Mohave County · (928) 753-0748 · addresses in Kingman. Listed under: General health issues, Chronic disease, Death & dying, Wellness.
+- **Public Health Nursing Services — Mohave County Department of Public Health** — serves Mohave County · (928) 753-0748 · addresses in Bullhead City, Colorado City, Kingman, Lake Havasu City. Listed under: Wellness, General health issues, Chronic disease.
+- **Respite Care — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Saint George Vet Center, Utah — Tucson Vet Center** — serves Mohave County · (435) 673-4494 · addresses in Saint George. Listed under: Wellness.
+- **Senior Programs — Mohave County Department of Public Health** — serves Mohave County · (928) 757-8150 · addresses in Kingman, Lake Havasu City, Topock. Listed under: Aging health issues, Chronic disease, Wellness, Weight management.
+- **Specialty Clinic Lab (Microbiology) — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Chronic disease, Wellness.
+- **State Health Insurance Assistance Program (SHIP) — Western Arizona Council of Governments (WACOG)** — serves Mohave County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: General health issues, Aging health issues, Wellness.
+- **Stroke Support Group of Havasu — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: General health issues, Aging health issues, Wellness.
+- **Support Groups (Autism) — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Support Groups — MIKID** — serves Mohave County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Supportive Housing — NAZCARE, Inc.** — serves Mohave County · (928) 634-1168 · addresses in Cottonwood, Kingman, Prescott, Prescott Valley. Listed under: Wellness.
+- **The Cancer Association of Havasu — Havasu Community Health Foundation** — serves Mohave County · (928) 453-8190 · addresses in Lake Havasu City. Listed under: Chronic disease, Wellness.
+- **The Polidori House — Hospice of Havasu** — serves Mohave County · (928) 453-2111 · addresses in Lake Havasu City. Listed under: Chronic disease, Death & dying.
+- **The Salvation Army Bullhead City Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Mohave County · (928) 758-3141 · addresses in Bullhead City, Kingman, Lake Havasu City. Listed under: Wellness.
+- **The Salvation Army Kingman Service Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Mohave County · (800) 725-2769 · addresses in Bullhead City, Kingman, Lake Havasu City. Listed under: Wellness.
+- **The Salvation Army Lake Havasu City Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Mohave County · (928) 680-3678 · addresses in Bullhead City, Kingman, Lake Havasu City. Listed under: Wellness.
+- **Tobacco Cessation — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: Medication-assisted treatment, Wellness.
+- **Training Programs — MIKID** — serves Mohave County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transition Age Youth Program — MIKID** — serves Mohave County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Transitions Program — Hospice of Havasu** — serves Mohave County · (928) 453-2111 · addresses in Ft. Mohave, Lake Havasu City. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Transplant Program — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: Chronic disease.
+- **VA Claims Assistance — Disabled American Veterans Chapter 27 Lake Havasu City Arizona** — serves Mohave County · (928) 855-0356 · addresses in Lake Havasu. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness.
+- **Veteran Health Education — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues.
+- **Veterans Finding a Purpose — Kingman's Healing Hooves** — serves Mohave County · (928) 279-7581 · addresses in Kingman. Listed under: Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Veterans Treatment Court — City of Kingman** — serves Mohave County · addresses in Kingman. Listed under: Wellness, General health issues.
+- **Vital Records - Birth & Death Certificates — Mohave County Department of Public Health** — serves Mohave County · (928) 753-0748 · addresses in Kingman. Listed under: General health issues, Death & dying.
+- **WACOG Aging, Disability and Family Helpline Resource Center — WACOG Area Agency on Aging (Region IV)** — serves Mohave County · (800) 782-1886. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **WACOG Benefits Enrollment Center (BEC) — WACOG Area Agency on Aging (Region IV)** — serves Mohave County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Aging health issues, Chronic disease, Wellness.
+- **WACOG Case Management — Western Arizona Council of Governments (WACOG)** — serves Mohave County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Wellness, General health issues.
+- **Wellness Program — MIKID** — serves Mohave County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Women's General Care — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Rehabilitation Care — Northern Arizona VA Health Care System** — serves Mohave County · (928) 445-4860 · addresses in Prescott. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain, Aging health issues.
+- **YADAH — Arizona Youth Partnership** — serves Mohave County · (928) 692-5889 · addresses in Catalina, Globe, Kingman, Lakeside, Marana. Listed under: Wellness.
+- **Youth Council — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — serves Mohave County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Services — MIKID** — serves Mohave County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+
+## Statewide programs under Physical Health, which also serve Mohave County (95)
+
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: Traumatic Brain Injury, Wellness.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Wellness.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ADEQ Air Forecasting — Arizona Department of Environmental Quality** — statewide. Listed under: General health issues, Chronic disease, Wellness.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Wellness.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Wellness, General health issues.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Wellness.
+- **Ages and Stages Resources — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: General health issues.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Aging health issues.
+- **Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Chronic diseases, General health issues, Aging health issues, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — statewide · (480) 455-3957. Listed under: Chronic disease, Wellness.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Wellness.
+- **Arizona Heat Safety Resource Guide — Arizona Department of Health Services** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Arizona Immunization Program — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: General health issues.
+- **Arizona Long Term Care System (ALTCS) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (888) 621-6880. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Aging health issues.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Death & dying.
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Wellness, Death & dying, Aging health issues.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Wellness.
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Wellness.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **AZGeo Data Hub** — statewide. Listed under: General health issues, Wellness.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **BC Support Line — Be Connected** — statewide. Listed under: Wellness.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Wellness.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Billet Health Pharmacy Services** — statewide · (833) 224-5538. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: General health issues, Wellness.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Traumatic Brain Injury, Wellness.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Cancer Prevention & Control Programs — Arizona Department of Health Services** — statewide · (602) 364-0214. Listed under: Chronic disease, Death & dying.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Wellness.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Wellness.
+- **Chemical Emergency Preparedness — The American Red Cross** — statewide. Listed under: Wellness.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Wellness.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Wellness.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Wellness.
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Aging health issues.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness, Chronic disease.
+- **Disability Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **Disease Integration & Services — Arizona Department of Health Services** — statewide · (602) 364-4571. Listed under: General health issues, Chronic disease.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Wellness.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: Wellness.
+- **Fireworks Regulations in the City of Phoenix — Phoenix Fire Department** — statewide. Listed under: Wellness.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: General health issues, Aging health issues, Wellness, Pain management/chronic pain.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: General health issues.
+- **Healthcare Resources for Veterans and Service Providers — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Healthy Babies — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Wellness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General health issues, Wellness, Chronic disease.
+- **Home Care** — statewide. Listed under: Aging health issues, Chronic disease, Wellness.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Wellness, General health issues.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Death & dying.
+- **Life Enrichment Programs — Helping Hands for Freedom** — statewide. Listed under: Wellness.
+- **MAT Resources — Center for Applied Behavioral Health Policy** — statewide. Listed under: Medication-assisted treatment, Wellness.
+- **Medical Loan Closet — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **Mobile Spay/Neuter & Vaccination Clinics — The Parker Project** — statewide. Listed under: Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Wellness.
+- **Mobilize AZ — Blue Cross Blue Shield of Arizona** — statewide. Listed under: Chronic disease, Wellness.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Aging health issues.
+- **Obesity Prevention — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Office of Environmental Health — Arizona Department of Health Services** — statewide · (602) 364-3118. Listed under: Chronic disease, Wellness.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Prevent Mosquito-Borne Diseases — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Report Child Abuse or Neglect - Arizona Child Abuse Hotline — Arizona Department of Child Safety (DCS)** — statewide. Listed under: Wellness.
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Aging health issues.
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior Rehabilitation Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues, Aging health issues, Wellness.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **St. Joseph Baskets for Homeless Veterans — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Wellness.
+- **Summer Safety — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — statewide · (520) 795-9671. Listed under: Wellness.
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Wellness.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Vector-Borne & Zoonotic Diseases Program — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Wellness.
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Traumatic Brain Injury, General health issues.
+
+## About this page
+
+This page lists every program in the directory that Be Connected lists as serving Mohave County under the topic Physical Health. It is the full list for that county and topic. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

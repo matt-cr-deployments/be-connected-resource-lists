@@ -1,0 +1,45 @@
+# Family & Social Supports: Be Connected resources in Prescott, Arizona
+
+- **Aquatics Center — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Overall family stress, Children (early childhood, elementary, adolescents).
+- **Arizona Families F.I.R.S.T. (AFF) — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Overall family stress, Substance use, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Cafe on Rosser Dining Room — Prescott Meals On Wheels** — in Prescott: 1280 E Rosser St, Prescott 86301 · (928) 445-7630. Listed under: Aging and elder care, Overall family stress.
+- **Catholic Charities General Resources for Veterans — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Children (early childhood, elementary, adolescents), Overall family stress, Disabilities, Aging and elder care.
+- **Child Care — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Care (in home or in a facility), Education.
+- **Contract Nursing Home Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Care (in home or in a facility), Overall family stress.
+- **Domestic Violence Services — Community Legal Services** — in Prescott: 141 South McCormick Street, Suite 200, Prescott 86303 · (928) 445-9240. Listed under: Overall family stress, Aging health issues.
+- **Dr. Cameron McKinley VA Veterans Center - Prescott** — in Prescott: 3180 Stillwater Drive, Suite A, Prescott 86305 · (928) 778-3469. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+- **Educational Programs — The Salvation Army (Bullhead City/Laughlin Corps)** — in Prescott: 237 S. Montezuma Street, Prescott 86303 · (928) 778-0150. Listed under: Education.
+- **Family Law — Community Legal Services** — in Prescott: 141 South McCormick Street, Suite 200, Prescott 86303 · (928) 445-9240. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Fitness Center — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Overall family stress.
+- **Foster Care & Adoption (Northern Arizona) — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Parenting, Adoption, Children (early childhood, elementary, adolescents), Children with special needs.
+- **Homeless Patient Aligned Care Teams — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Substance use.
+- **Just for Girls! — North Star Youth Partnership** — in Prescott: 750 Whipple Street, Prescott 86301. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Education.
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Prescott: 141 South McCormick Street, Suite 200, Prescott 86303 · (928) 445-9240. Listed under: Overall family stress.
+- **Little Learners Program — High Country Early Intervention** — in Prescott: 3160 Stillwater Drive., Prescott 86305. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Disabilities, Children with special needs.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — in Prescott: 141 South McCormick Street, Suite 200, Prescott 86303 · (928) 445-9240. Listed under: Overall family stress.
+- **Low Vision Clinic — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Overall family stress, Disabilities.
+- **Marriage/Couples Therapy, Pre-marital Therapy, & Marriage Enrichment — Prescott Relationship Center** — in Prescott: 1580 Plaza West Drive, Prescott 86303 · (928) 273-0027. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Medical Foster Home — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Care (in home or in a facility), Aging and elder care.
+- **Mental Health Intensive Case Management (MHICM) — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Inpatient, Care (in home or in a facility).
+- **Military Sexual Trauma (MST) — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Aging health issues.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Prescott: 1375 Iron Springs Rd, Prescott 86305 · (928) 515-6540. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **NAVAHCS Domiciliary — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Residential treatment, Inpatient, Substance use, Relationships (spouses, significant others), Overall family stress, Care (in home or in a facility).
+- **NAVAHCS Health Care for Re-Entry Veterans Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Substance use, Relationships (spouses, significant others).
+- **NAVAHCS Mental Health Services — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Medication-assisted treatment, Substance use, Overall family stress.
+- **North Star Youth Partnership — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Education.
+- **Patient Advocate — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Care (in home or in a facility).
+- **Prescott National Cemetery — National Cemetery Administration (NCA)** — in Prescott: 500 Highway 89 North, Prescott 86313 · (928) 717-7569. Listed under: Overall family stress.
+- **Programs for Moms and Babies — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Children with special needs.
+- **Safe Sitter Training — North Star Youth Partnership** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Children (early childhood, elementary, adolescents), Care (in home or in a facility), Education.
+- **Sports Programs — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Overall family stress, Children (early childhood, elementary, adolescents).
+- **Substance Use Disorders — West Yavapai Guidance Clinic** — in Prescott: Walk In Crisis Location:, 642 Dameron Drive, Prescott 86301 · (928) 445-5211. Listed under: Residential treatment, Inpatient, Relationships (spouses, significant others), Overall family stress, Substance use.
+- **Supportive Housing — NAZCARE, Inc.** — in Prescott: 599 White Spar Rd, Prescott 86303 · (928) 442-9205. Listed under: Substance use, Relationships (spouses, significant others).
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Prescott: 237 S. Montezuma Street, Prescott 86303 · (928) 778-0150. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Veteran and Military Family Club — Prescott College** — in Prescott: 220 Grove Ave, Prescott 86301 · (220) 863-0187. Listed under: Overall family stress, Relationships (spouses, significant others), Education.
+- **Women's Behavioral Health — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Overall family stress, Aging health issues, Parenting, Care (in home or in a facility), Aging and elder care.
+- **Yavapai County Free Library District (YCFLD)** — in Prescott: 1971 Commerce Center Circle, Suite D, Prescott 86301 · (928) 771-3191. Listed under: Education.
+- **Youth Leadership Programs — North Star Youth Partnership** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Education.
+
+## About this page
+
+This page lists programs with an address in Prescott. Programs based elsewhere that serve Prescott are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

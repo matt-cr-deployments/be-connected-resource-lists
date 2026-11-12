@@ -1,7 +1,13 @@
 # Be Connected resources in Tempe, Arizona
 
-- **Intensive Outpatient Program (IOP) — La Frontera Arizona** — in Tempe: 618 S. Madison Dr, Tempe 85281 · (480) 784-1514. Listed under: Intensive outpatient (IOP), Prescription medication, Drugs, Alcohol.
+Programs with an address in Tempe, listed by topic:
 
-## About this page
-
-This page lists programs with an address in Tempe. Programs based elsewhere that serve Tempe are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.
+- [Housing & Homelessness in Tempe](tempe-housing-homelessness.md): 16 programs
+- [Mental Health & Substance Use in Tempe](tempe-mental-health-substance-use.md): 46 programs
+- [Finances & Benefits in Tempe](tempe-finances-benefits.md): 24 programs
+- [Legal in Tempe](tempe-legal.md): 3 programs
+- [Employment in Tempe](tempe-employment.md): 13 programs
+- [Physical Health in Tempe](tempe-physical-health.md): 36 programs
+- [Family & Social Supports in Tempe](tempe-family-social-supports.md): 38 programs
+- [Higher Education in Tempe](tempe-higher-education.md): 10 programs
+- [Spirituality in Tempe](tempe-spirituality.md): 8 programs

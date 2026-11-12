@@ -1,0 +1,89 @@
+# Legal: Be Connected resources in Phoenix, Arizona
+
+- **ACESDV Technical Assistance & Training for Organizations — Arizona Coalition To End Sexual and Domestic Violence** — in Phoenix: 2700 N. Central Ave, Suite 1100, Phoenix 85004 · (602) 279-2900. Listed under: Family law, Other.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — in Phoenix: 3839 N 3rd Street, Phoenix 85012. Listed under: Benefits, Other.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. Listed under: Other.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. Listed under: Other.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 18401 N. 32nd Street, Building J, Room 101, Phoenix 85032 · (480) 784-0590. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 108 N. 40th Street, South Building, Phoenix 85034 · (480) 784-0590. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — in Phoenix: 7050 S 24th St, Phoenix 85042 · (480) 784-0590. Listed under: Other.
+- **Arizona Domestic Violence Legal Assistance Project — Arizona Foundation for Legal Services & Education** — in Phoenix: 4201 N 24 ST, Suite 210, Phoenix 85016. Listed under: Family law.
+- **Arizona Superior Courts — Arizona Supreme Court** — in Phoenix: Central Court Building, 201 W. Jefferson Street, Phoenix 85003 · (602) 506-3204. Listed under: Landlord/tenant, Family law, Employment, Other, Misdemeanor, Felony.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — in Phoenix: 141 East Palm Lane Suite #105, Phoenix 85004 · (602) 340-9393. Listed under: Landlord/tenant, Family law, Benefits, Employment, Discharge status, Misdemeanor.
+- **Attorney/Consumer Assistance Program (A/CAP) — State Bar of Arizona** — in Phoenix: 4201 N. 24th Street, Suite 100, Phoenix 85016 · (602) 252-4804. Listed under: Other.
+- **AZ Attorney General Resources for Seniors & Elders — Arizona Attorney General’s Office** — in Phoenix: 2005 N Central Ave, Phoenix 85004 · (602) 542-5025. Listed under: Family law.
+- **AZPVA Veteran Benefits Service Office — Paralyzed Veterans of America Arizona Chapter** — in Phoenix: 1001 East Fairmount Ave, Suite 1055, Phoenix 85014 · (602) 627-3311. Listed under: Benefits.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 12220 N 39th Ave, Phoenix 85029 · (602) 495-5009. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 620 West Washington Street, Phoenix 85003 · (602) 262-6151. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 33355 North Cave Creek Road, Phoenix 85331 · (602) 495-5002. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 1902 South 16th Street, Phoenix 85034 · (602) 495-5005. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 6180 W. Encanto Blvd., Phoenix 85035 · (602) 495-5008. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 400 West Southern Avenue, Phoenix 85041 · (602) 495-5004. Listed under: Other.
+- **Block Watch Information — Phoenix Police Department** — in Phoenix: 2075 East Maryland Avenue, Phoenix 85016 · (602) 495-5007. Listed under: Other.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Benefits, Employment, Discharge status.
+- **Case Management — Central Arizona Shelter Services (CASS)** — in Phoenix: 1050 W. Mountain View Rd., Phoenix 85021 · (602) 870-8778. Listed under: Benefits, Employment, Discharge status.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1125 W. Jackson St., Phoenix 85007 · (844) 691-5948. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Rooms A, B, D, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Phoenix: 1520 E. Pima St., Phoenix 85034 · (602) 407-6280. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Phoenix: 2770 E. Van Buren, Phoenix 85008 · (602) 273-9999. Listed under: Detox, Inpatient, Medication-assisted treatment, Other, Benefits.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — in Phoenix: 338 N 15th Ave., Phoenix 85007 · (602) 688-6211. Listed under: Other, Family law.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave, Phoenix 85007 · (602) 256-6945. Listed under: Family law, Landlord/tenant.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — in Phoenix: 2700 N. Central Ave, Suite 1100, Phoenix 85004 · (602) 279-2900. Listed under: Family law, Other.
+- **Consumer Law — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Other.
+- **Crosiers in Phoenix — Crosier Fathers and Brothers** — in Phoenix: 717 E. Southern Ave., Phoenix 85040 · (602) 443-7100. Listed under: Other.
+- **Domestic Violence Services — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Family law, Other.
+- **Family Law — Community Legal Services** — in Phoenix: 201 W. Jefferson, 6th Floor, Phoenix 85003 · (602) 506-1561. Listed under: Family law.
+- **Family Law — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Family law.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 914 W. Hatcher Road, Phoenix 85021 · (602) 534-2433. Listed under: Family law, Landlord/tenant, Benefits.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 4732 S. Central Ave., Phoenix 85040 · (602) 534-2433. Listed under: Family law, Landlord/tenant, Benefits.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — in Phoenix: 3454 N. 51st Ave., Phoenix 85031 · (602) 534-2433. Listed under: Family law, Landlord/tenant, Benefits.
+- **Fire Prevention Division — Phoenix Fire Department** — in Phoenix: 150 S 12th St., Phoenix 85034 · (602) 262-6297. Listed under: Other.
+- **Foster Care & Adoption (Central Arizona|Phoenix area) — Catholic Charities Community Services** — in Phoenix: Corporate Office, 4747 N. 7th Ave, Phoenix 85013. Listed under: Family law.
+- **Helping Women & Families Thrive — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Family law, Other.
+- **Hope Initiative for Healthy Families — Hope Women's Center** — in Phoenix: 1640 E. McDowell Road, Phoenix 85006 · (602) 715-0999. Listed under: Family law, Other.
+- **Housing Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Avenue, Phoenix 85007 · (602) 256-6945. Listed under: Landlord/tenant.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Benefits, Felony, Other.
+- **HSC Resources — Human Services Campus (Keys to Change)** — in Phoenix: 206 S. 12th Avenue, Phoenix 85007 · (602) 229-5155. Listed under: Other, Felony, Misdemeanor, Benefits.
+- **Independent Living Services — Ability360** — in Phoenix: 5031 E. Washington St., Phoenix 85034 · (602) 386-4566. Listed under: Other, Benefits.
+- **Independent Living Services — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Other, Benefits.
+- **Independent Living Workshop — Ability360** — in Phoenix: 5025 E. Washington St., Ste. 200, Phoenix 85034 · (602) 256-2245. Listed under: Landlord/tenant, Benefits.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 650 E. Indian School Road, Phoenix 85012 · (602) 277-5551. Listed under: Family law.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 5040 N 15th Ave, Phoenix 85015 · (602) 234-7080. Listed under: Family law.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 9250 W. Thomas Rd., Phoenix 85037 · (623) 772-4000. Listed under: Family law.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — in Phoenix: 9424 N. 25th Ave., Phoenix 85021 · (602) 633-6900. Listed under: Family law.
+- **Legal Help and Education — State Bar of Arizona** — in Phoenix: 4201 N. 24th Street, Suite 100, Phoenix 85016 · (602) 252-4804. Listed under: Landlord/tenant, Family law, Benefits, Employment, Misdemeanor, Felony.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014-5739 · (602) 264-2255. Listed under: Other.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004-1448 · (602) 258-4822. Listed under: Other.
+- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Landlord/tenant, Other.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — in Phoenix: 1366 East Thomas Road, Suite 108, Phoenix 85014-5739 · (602) 264-2255. Listed under: Other.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — in Phoenix: 2214 N. Central Ave, #100, Phoenix 85004-1448 · (602) 258-4822. Listed under: Other.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — in Phoenix: 305 S. 2nd Ave., Phoenix 85003 · (602) 258-3434. Listed under: Other.
+- **Mental Health Outpatient Services — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Other, Benefits, Family law.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 4005 N. 16th St, Phoenix 85016 · (602) 535-4444. Listed under: Benefits, Employment, Other.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — in Phoenix: 2929 N. 75th Ave., Phoenix 85033 · (602) 535-4444. Listed under: Benefits, Employment, Other.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Family law, Other.
+- **Parents for Parents Program — Family Involvement Center** — in Phoenix: 5333 N. 7th St., Ste. A-100, Phoenix 85014 · (602) 412-4095. Listed under: Family law, Other.
+- **Phoenix FD Community Outreach — Phoenix Fire Department** — in Phoenix: 150 S 12th St., Phoenix 85034 · (602) 262-6297. Listed under: Other.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 9801 North 7th Street North Mountain Village, Phoenix 85020 · (602) 861-0208. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 3406 North 51st Avenue Maryvale Village, Phoenix 85031 · (623) 245-6200. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4732 South Central Avenue South Mountain Village, Phoenix 85040 · (602) 534-4732. Listed under: Benefits.
+- **Phoenix Job Centers — ARIZONA@WORK City of Phoenix** — in Phoenix: 4635 S Central Ave, Phoenix 85040 · (602) 771-0630. Listed under: Benefits.
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — in Phoenix: 5636 E. McDowell Road, Phoenix 85008 · (602) 267-2700. Listed under: Employment.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — in Phoenix: 1500 East Thomas Rd., Suite 106, Phoenix 85014 · (602) 248-6040. Listed under: Detox, Residential treatment, Medication-assisted treatment, Other, Benefits, Misdemeanor.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Other.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 9227 N. 10th Ave., Phoenix 85021 · (602) 339-7611. Listed under: Other.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Other.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Other.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 320 W. Watkins Rd., Phoenix 85003 · (602) 850-6900. Listed under: Felony, Other.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 1075 W. Jackson St., Phoenix 85007 · (480) 307-2752. Listed under: Felony, Other.
+- **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — in Phoenix: 420 W. Watkins Road, Phoenix 85003 · (602) 266-4673. Listed under: Felony, Other.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — in Phoenix: Transforming Lives Center (Men's Campus), 1801 S. 35th Ave., Phoenix 85009 · (602) 346-3384. Listed under: Family law, Other.
+- **Tribal Ombudsman Program — Inter Tribal Council of Arizona Area Agency on Aging (ITCA-AAA)** — in Phoenix: 2214 North Central Avenue, Ste. 100, Phoenix 85004 · (602) 258-4822. Listed under: Other, Benefits.
+- **VBA Phoenix Regional Office (RO) — Veterans Benefits Administration (VBA)** — in Phoenix: 3333 North Central Avenue, Phoenix 85012 · (800) 827-1000. Listed under: Benefits.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — in Phoenix: 230 S. 12th Ave.,, Phoenix 85007 · (602) 256-6945. Listed under: Family law, Benefits, Employment, Discharge status.
+- **Veterans Court (Maricopa County)** — in Phoenix: 175 W. Madison St., Courtroom 2B, Phoenix 85003-2243 · (602) 506-3204. Listed under: Misdemeanor, Other.
+
+## About this page
+
+This page lists programs with an address in Phoenix. Programs based elsewhere that serve Phoenix are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

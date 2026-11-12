@@ -1,8 +1,397 @@
 # Physical Health in Maricopa County: Be Connected resources
 
-## Listed as serving Maricopa County under Physical Health (1)
+## Listed as serving Maricopa County under Physical Health (292)
 
+- **24 Hour Live-In Assistance — Adultcare Assistance Homecare** — serves Maricopa County · (602) 455-1118 · addresses in Phoenix, Sun City, Tucson. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **24 Hour Senior Helpline — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County. Listed under: Aging health issues.
+- **Ability360 app** — serves Maricopa County · (602) 386-4566. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Weight management, Wellness.
+- **Ability360 Center** — serves Maricopa County · (602) 256-2245 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury.
+- **Ability360 Sports & Fitness Center** — serves Maricopa County · (602) 386-4566 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **ACTIVATE program & ACTIVATE Kindness Closet — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Acupuncture and Alternative Therapies — Supreme Acupuncture, LLC** — serves Maricopa County · (602) 730-4332 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Sleep, Weight management.
+- **Addiction Treatment During Pregnancy — Intensive Treatment Systems** — serves Maricopa County · (602) 996-0099 · addresses in Mesa, Phoenix, San Tan Valley. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Adult Behavioral Health Therapeutic Home Program (ABHTH) — AllThrive365** — serves Maricopa County · (602) 603-4174 · addresses in Phoenix. Listed under: Aging health issues, General health issues, Wellness.
+- **Adult Day Health Services - Engagement & Wellness Centers for Adults of Any Age — AllThrive365** — serves Maricopa County · (602) 532-2983 · addresses in Glendale, Phoenix, Tempe. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Adult Foster Care — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Age Friendly Arizona — Maricopa Association of Governments (MAG)** — serves Maricopa County · (602) 254-6300. Listed under: Wellness.
+- **Agency Review — Tempe Community Council (TCC)** — serves Maricopa County · (480) 858-2300 · addresses in Tempe. Listed under: General health issues, Wellness.
+- **Aging in Place (AIP) for Vets — Habitat for Humanity - Central Arizona** — serves Maricopa County · (602) 268-9022. Listed under: Aging health issues.
+- **Agua Fria Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Anasazi Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Area Agency on Aging Resource Guide — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County · (888) 783-7500. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Maricopa County · addresses in Phoenix, Surprise. Listed under: Wellness.
+- **Art Workshop at Arizona Artists Guild — Your Art Your Story** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Death & dying, Wellness.
+- **Assertive Community Treatment (ACT) — Community Bridges, Inc.** — serves Maricopa County · (877) 931-9142 · addresses in Mesa. Listed under: General health issues, Wellness.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — serves Maricopa County · (877) 568-8468 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Wellness.
+- **Assisted Group Living Services — AllThrive365** — serves Maricopa County · (602) 285-1800. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Aster Senior Centers — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Aging health issues, Chronic disease, Wellness, Weight management.
+- **Asthon Sosi Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **ATLAS (Accessing Telehealth through Local Area Stations) — Veterans Health Administration (VHA)** — serves Maricopa County · (928) 684-7762 · addresses in Wickenburg. Listed under: General health issues, Aging health issues, Wellness.
+- **ATLAS sites in Arizona — Veterans Health Administration (VHA)** — serves Maricopa County · addresses in Wickenburg. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Audiology Hearing Aid Repair Walk-in Clinic — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Gilbert, Phoenix, Surprise. Listed under: General health issues, Aging health issues.
+- **Audiology — Phoenix VA Health Care System** — serves Maricopa County · (602) 222-6412 · addresses in Gilbert, Payson, Phoenix, Scottsdale, Show Low, Surprise. Listed under: General health issues, Aging health issues.
+- **Autism Spectrum Disorder Resources — Molina Healthcare of Arizona** — serves Maricopa County. Listed under: Wellness, General health issues.
+- **Automated Pharmacy Refill Line — Phoenix VA Health Care System** — serves Maricopa County · (602) 222-6598. Listed under: Wellness, Pain management/chronic pain.
+- **AZ Complete Health Avondale Resource Center — Avondale Neighborhood & Family Services Department** — serves Maricopa County · (623) 333-2703 · addresses in Avondale. Listed under: Wellness.
+- **Baby Shots / Vaccinations Program — Phoenix Fire Department** — serves Maricopa County. Listed under: Wellness.
+- **Behavioral Health Programs — A New Leaf, Mesa Community Action Network (MesaCAN)** — serves Maricopa County · (623) 934-1991 · addresses in Glendale, Mesa. Listed under: Wellness, General health issues.
+- **Benefits Enrollment Center — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Aging health issues, Wellness, Chronic disease.
+- **Bereavement — Prime Care Hospice** — serves Maricopa County. Listed under: Death & dying.
+- **Buckeye Valley Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Building Spiritual Strength — Casa Veterans Ministry** — serves Maricopa County · (480) 948-7460 · addresses in Scottsdale. Listed under: Wellness.
+- **Cactus Wren Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Camelback Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Cancer Program — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Chronic disease.
+- **CARE 7 - Veteran Services — City of Tempe** — serves Maricopa County · (480) 858-2388 · addresses in Tempe. Listed under: Wellness.
+- **CARE 7 - Victim Assistance — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. Listed under: Wellness.
+- **Care By Design Coordination Services — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Caregiver Relief Services — Foothills Caring Corps** — serves Maricopa County. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Caregiving Services — Billet Health** — serves Maricopa County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, General health issues, Wellness.
+- **Case Management — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: General health issues.
+- **CATCH Program — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Aging health issues, Chronic disease, Wellness.
+- **CBI Adolescent Services — Community Bridges, Inc.** — serves Maricopa County · (480) 768-6022 · addresses in Mesa, Payson. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Wellness.
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Maricopa County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Maricopa County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient, Wellness.
+- **CBI Supportive Services For Veteran Families (SSVF) Program — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa. 
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Maricopa County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Women & Children Programs — Community Bridges, Inc.** — serves Maricopa County · (480) 461-1711 · addresses in Mesa. Listed under: Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Maricopa County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — serves Maricopa County · (602) 688-6211 · addresses in Phoenix. Listed under: Wellness.
+- **Charles Trumbull Hayden Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: General health issues.
+- **Child Safety Seats — Phoenix Fire Department** — serves Maricopa County · (602) 495-5437 · addresses in Phoenix. Listed under: Wellness.
+- **Children’s Developmental Center — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Chronic Disease Stress Management Group — La Frontera Arizona** — serves Maricopa County · (480) 784-1514 · addresses in Glendale, Tempe. Listed under: Pain management/chronic pain, Chronic disease.
+- **Clinical Services — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness, Dental.
+- **Code:Red Summer Heat Relief — Phoenix Rescue Mission** — serves Maricopa County. Listed under: Wellness.
+- **Community Assistance Services — Foothills Caring Corps** — serves Maricopa County. Listed under: Wellness.
+- **Community Education Programs — Hospice of the Valley** — serves Maricopa County. Listed under: Wellness.
+- **Community Emergency Notification System (CENS) — Maricopa Association of Governments (MAG)** — serves Maricopa County. Listed under: Wellness.
+- **Community Engagement for MAT Services — Community Medical Services** — serves Maricopa County. Listed under: Medication-assisted treatment, Wellness.
+- **Community Gardens — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 350-5896 · addresses in Tempe. Listed under: Wellness.
+- **Community Living Center — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Aging health issues.
+- **Community Partners — Pet Partners of Arizona** — serves Maricopa County. Listed under: Wellness.
+- **Community Support Services — Foothills Food Bank and Resource Center** — serves Maricopa County · (623) 374-9441 · addresses in Black Canyon City, Cave Creek. Listed under: Wellness.
+- **Community Transportation — Foothills Caring Corps** — serves Maricopa County · (480) 488-1105 · addresses in Carefree. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Copper State Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Correctional Health Services — Community Medical Services** — serves Maricopa County. Listed under: Wellness.
+- **CPR/First Aid Classes — Wickenburg Fire Department** — serves Maricopa County · addresses in Wickenburg. Listed under: Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — serves Maricopa County · (520) 586-6171 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Crisis Prevention/Intervention — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Pain management/chronic pain, Chronic disease, Traumatic Brain Injury, Wellness.
+- **Crisis Response — City of Surprise** — serves Maricopa County. Listed under: General health issues.
+- **Dementia Care Programs — Hospice of the Valley** — serves Maricopa County · (602) 995-9323 · addresses in Phoenix. Listed under: Aging health issues, Wellness.
+- **Dementia Friendly Surprise — City of Surprise** — serves Maricopa County. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Dementia Friendly Tempe (DFT) — City of Tempe** — serves Maricopa County. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Developmental Assessments — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Domestic Violence Services — Catholic Charities Community Services** — serves Maricopa County. Listed under: Wellness.
+- **Electroconvulsive Therapy (ECT) Shock Therapy — Aurora Behavioral Health System** — serves Maricopa County · (480) 345-5400 · addresses in Glendale, Tempe. Listed under: Intensive outpatient (IOP), Wellness, General health issues, Chronic disease.
+- **Emergency Home Repair — Habitat for Humanity - Central Arizona** — serves Maricopa County. Listed under: Wellness.
+- **Empowering Family Caregivers Educational Series — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Aging health issues, Wellness.
+- **Equine Therapy and other Support Services — Rancho Milagro Foundation** — serves Maricopa County. Listed under: Wellness.
+- **Family Caregiver Support — Prime Care Hospice** — serves Maricopa County. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Family Support Services — Hospice of the Valley** — serves Maricopa County. Listed under: Wellness.
+- **Feeding Program — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Find Help Phoenix (FHP) — Maricopa County Department of Public Health (MCDPH)** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **Fire Prevention Division — Phoenix Fire Department** — serves Maricopa County · (602) 262-6297 · addresses in Phoenix. Listed under: Wellness.
+- **Food & Nutrition Program — Black Family and Child Services of Arizona** — serves Maricopa County · (602) 243-1773 · addresses in Phoenix. Listed under: Wellness.
+- **Food Services — Foothills Food Bank and Resource Center** — serves Maricopa County · (480) 488-1145 · addresses in Black Canyon City, Cave Creek. Listed under: Wellness.
+- **Foothills Caring Corps/Senior Program — Foothills Food Bank and Resource Center** — serves Maricopa County. Listed under: Wellness.
+- **Forensic Assertive Community Treatment (FACT) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Residential treatment, Wellness, General health issues.
+- **Four Peaks Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **FSDS Service Dog training program — The Foundation for Service Dog Support, Inc.** — serves Maricopa County · (623) 200-9762 · addresses in Glendale. Listed under: Wellness, Pain management/chronic pain, Traumatic Brain Injury.
+- **FSL Caregiver House — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness, Aging health issues.
+- **FSL Home Care Services — AllThrive365** — serves Maricopa County. Listed under: Wellness, Aging health issues, Chronic disease.
+- **FSL Senior Centers — AllThrive365** — serves Maricopa County · (623) 979-3570 · addresses in Peoria, Wickenburg. Listed under: Wellness, Aging health issues.
+- **Gila Butte Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Glendale Works — Phoenix Rescue Mission** — serves Maricopa County · (623) 930-3590 · addresses in Glendale. Listed under: Wellness.
+- **Good Fit Counseling Center — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness, Sleep.
+- **Governor George W.P. Hunt Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Grand Canyon Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Group/Individual/Family Counseling — Intensive Treatment Systems** — serves Maricopa County · (602) 996-0099 · addresses in Mesa, Phoenix, San Tan Valley. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Bank - Maryvale** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Bank - Phoenix** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Harvest Compassion Center Food & Clothing Donations** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Healing of Memories Workshops & Facilitator Training — Spirit in the Desert** — serves Maricopa County · (480) 488-5218 · addresses in Carefree. Listed under: Wellness.
+- **Health & Economic Security — Community Legal Services** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **Health Care Services for the Homeless — Circle the City** — serves Maricopa County · (602) 776-9000 · addresses in Phoenix. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Healthy Living Classes — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Helping Women & Families Thrive — Hope Women's Center** — serves Maricopa County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. Listed under: General health issues, Wellness.
+- **Home Care Services — Ability360** — serves Maricopa County · addresses in Phoenix. Listed under: Aging health issues, Wellness, Death & dying, General health issues.
+- **Home Care Services — Ability360** — serves Maricopa County. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Home Health Services — AllThrive365** — serves Maricopa County. Listed under: Wellness, Aging health issues, Chronic disease, Pain management/chronic pain.
+- **Home Health — Billet Health** — serves Maricopa County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Hope Coach Mobile Outreach — Phoenix Rescue Mission** — serves Maricopa County · (602) 233-3000 · addresses in Phoenix. Listed under: Wellness.
+- **Hope ROSES Program for Pregnant Moms & Moms of Newborns — Hope Women's Center** — serves Maricopa County · (602) 715-0999 · addresses in Phoenix. Listed under: Wellness.
+- **Hospice Care & More Programs — Hospice of the Valley** — serves Maricopa County · (602) 234-6750 · addresses in Chandler, Gilbert, Glendale, Phoenix, Scottsdale, Surprise. Listed under: Residential treatment, Aging health issues, Chronic disease, Wellness.
+- **Hospice Care Services — Billet Health** — serves Maricopa County · (833) 224-5538. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Hospice Services — Prime Care Hospice** — serves Maricopa County. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Dental, Wellness.
+- **Hygiene Kits for those in need — Shoebox Ministry** — serves Maricopa County · (480) 905-1610 · addresses in Phoenix. Listed under: Wellness.
+- **IL Skills Training for Persons with Developmental Disabilities — Ability360** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **IL Skills Training — Ability360** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **In-Home Support Services — Aster Aging, Inc.** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Independent Living Services — Ability360** — serves Maricopa County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Wellness.
+- **Indian Health Service** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Individual Therapy & Group Counseling — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Medication-assisted treatment, Pain management/chronic pain, Traumatic Brain Injury, Wellness, Sleep.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — serves Maricopa County · (520) 586-6171 · addresses in Avondale, Benson, Casa Grande, Mesa, Payson, Phoenix. Listed under: Detox, Inpatient, Wellness.
+- **Integrated Health Care Services for the Homeless — Circle the City** — serves Maricopa County · (602) 776-9000 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Intensive Outpatient Treatment (IOP) Programs — Aurora Behavioral Health System** — serves Maricopa County · (480) 345-5400 · addresses in Glendale, Tempe. Listed under: Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, Wellness.
+- **ITS Intensive Outpatient Program (IOP) — Intensive Treatment Systems** — serves Maricopa County · (623) 247-1234 · addresses in Mesa, Phoenix, San Tan Valley. Listed under: Detox, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Laboratory — Northern Arizona VA Health Care System** — serves Maricopa County · (928) 445-4860 · addresses in Anthem, Cottonwood, Flagstaff, Holbrook, Kayenta, Kingman. Listed under: General health issues, Wellness.
+- **Laboratory-Outpatient — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Gilbert, Globe, Phoenix, Show Low, Surprise. Listed under: General health issues, Wellness.
+- **Language assistance — Mercy Care** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **Living Skills — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Living Well with a Disability — Ability360** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Major Winfield Scott Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Maricopa Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: General health issues.
+- **Maricopa County Environmental Services Vector Control Division** — serves Maricopa County · (602) 506-0700 · addresses in Phoenix. Listed under: Wellness.
+- **Meals on Wheels — Aster Aging, Inc.** — serves Maricopa County. Listed under: Aging health issues, General health issues, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — serves Maricopa County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Men to Men Support Group — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Maricopa County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Wellness.
+- **Mental Health Services — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Medication-assisted treatment, General health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep, Traumatic Brain Injury.
+- **Mercy Care Advantage Wellness — AllThrive365** — serves Maricopa County · addresses in Phoenix. Listed under: Aging health issues, Chronic disease, General health issues, Wellness.
+- **Mesa - Silvercrest Senior Citizens' Residence — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 649-9117 · addresses in Mesa. Listed under: Aging health issues, Wellness.
+- **Mesa Vet Center — Tucson Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. Listed under: Wellness.
+- **Military Access Pass — Ability360** — serves Maricopa County · (602) 386-4566 · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Military and Veteran Success Center (MVSC) — Rio Salado College** — serves Maricopa County · (480) 377-4150 · addresses in Tempe. Listed under: Wellness, General health issues.
+- **Miss Mary's Closet — Black Family and Child Services of Arizona** — serves Maricopa County · (602) 243-1773 · addresses in Phoenix. Listed under: Wellness.
+- **Mission Sharing — Phoenix Rescue Mission** — serves Maricopa County · (602) 773-4344 · addresses in Glendale. Listed under: Wellness.
+- **Mobile Meals — Foothills Caring Corps** — serves Maricopa County. Listed under: Wellness.
+- **Mobile Outreach Services for the Homeless — Circle the City** — serves Maricopa County · addresses in El Mirage, Mesa, Phoenix, Tempe. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Mobile Outreach — Catholic Charities MANA House** — serves Maricopa County · (602) 254-6785 · addresses in Phoenix. Listed under: Wellness.
+- **Mobility Equipment Loans — Foothills Caring Corps** — serves Maricopa County · (480) 488-1105 · addresses in Carefree. Listed under: Wellness.
+- **Monthly Community Block Watch & Neighborhood Meetings — Phoenix Block Watch Advisory Board** — serves Maricopa County. Listed under: Wellness.
+- **MVRC Event Calendar — Mesa Veterans Resource Center** — serves Maricopa County · (480) 834-2105 · addresses in Mesa. Listed under: Wellness.
+- **My HealtheVet — Phoenix VA Health Care System** — serves Maricopa County. Listed under: General health issues.
+- **NAVAHCS Anthem CBOC — Northern Arizona VA Health Care System** — serves Maricopa County · (623) 249-2300 · addresses in Anthem. Listed under: General health issues, Chronic disease, Aging health issues, Wellness.
+- **Neuropsychology — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Wellness, Traumatic Brain Injury.
+- **Newborn Intensive Care Program — Southwest Human Development** — serves Maricopa County. Listed under: Wellness.
+- **North Star Youth Partnership — Catholic Charities Community Services** — serves Maricopa County · (928) 708-7214 · addresses in Prescott. Listed under: Wellness.
+- **Nurse Line — Mercy Care** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **Nutrition, Hospitality & Food Services — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Gilbert, Globe, Phoenix, Scottsdale, Show Low, Surprise. Listed under: Wellness, Weight management.
+- **Ocotillo Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Operation Healing Journey (OHJ) — Honor House** — serves Maricopa County · addresses in Phoenix. Listed under: General health issues, Pain management/chronic pain, Chronic disease, Sleep, Traumatic Brain Injury, Wellness.
+- **Outpatient Clinics — Southwest Behavioral & Health Services** — serves Maricopa County · (602) 258-3600 · addresses in Buckeye, Bullhead City, Flagstaff, Kingman, Lake Havasu City, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Outpatient Health Care Services for Homeless Individuals — Circle the City** — serves Maricopa County · (602) 776-7676 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Outreach and Social Services Program — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management, Wellness.
+- **Parent Partners Plus — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **PATH - Projects for Assistance in Transitioning from Homelessness — Community Bridges, Inc.** — serves Maricopa County · (844) 691-5948 · addresses in Phoenix. Listed under: Detox, Medication-assisted treatment, General health issues.
+- **Patient Services — Arizona SonShine** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Dental, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — serves Maricopa County · (480) 768-6022 · addresses in Avondale, Mesa, Payson, Phoenix, Tucson, Yuma. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **Peer Support Services — Community Medical Services** — serves Maricopa County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Wellness.
+- **Peer Support — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peoria Community Center — City of Peoria** — serves Maricopa County · (623) 773-7436 · addresses in Peoria. Listed under: Wellness.
+- **Personal and Family Preparedness — Maricopa County Department of Emergency Management** — serves Maricopa County. Listed under: Wellness.
+- **Pet Partners Visits — Pet Partners of Arizona** — serves Maricopa County. Listed under: Wellness.
+- **PGA HOPE Golf Program — PGA HOPE Southwest** — serves Maricopa County. Listed under: Wellness.
+- **Phoenix 32nd Street VA Clinic — Phoenix VA Health Care System** — serves Maricopa County · (602) 914-2900 · addresses in Phoenix. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Phoenix FD Community Outreach — Phoenix Fire Department** — serves Maricopa County · (602) 262-6297 · addresses in Phoenix. Listed under: Wellness.
+- **Phoenix Silvercrest Senior Citizens' Residence & Laura Danieli Senior Activity Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (602) 251-2000 · addresses in Phoenix. Listed under: Aging health issues, Wellness.
+- **Phoenix Vet Center — Tucson Vet Center** — serves Maricopa County · (602) 640-2981 · addresses in Phoenix. Listed under: Wellness.
+- **Piestewa Peak Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **PIMC Dental Clinic — Phoenix Indian Medical Center (PIMC)** — serves Maricopa County · (602) 263-1200 · addresses in Phoenix. Listed under: Dental.
+- **PIMC Eye Department — Phoenix Indian Medical Center (PIMC)** — serves Maricopa County · (602) 263-1200 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **PIMC Pharmacy — Phoenix Indian Medical Center (PIMC)** — serves Maricopa County · (602) 263-1200 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — serves Maricopa County · (520) 792-5704 · addresses in Avondale, Casa Grande, Globe, Green Valley, Tucson. Listed under: Residential treatment, Wellness.
+- **Pre and Post Natal Services for Healthy Families — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 350-5877 · addresses in Tempe. Listed under: Wellness, General health issues.
+- **Pregnancy & Women's Health Services — Community Medical Services** — serves Maricopa County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Wellness.
+- **Prevent Mosquito-Borne Diseases — Maricopa County Department of Public Health (MCDPH)** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **Primary Care (F) — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: General health issues, Wellness, Aging health issues.
+- **PVAHCS Dental Service — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Dental.
+- **PVAHCS Northwest VA Clinic — Phoenix VA Health Care System** — serves Maricopa County · (623) 251-2884 · addresses in Surprise. Listed under: General health issues, Chronic disease, Death & dying, Aging health issues, Pain management/chronic pain, Wellness.
+- **PVAHCS Pharmacy — Phoenix VA Health Care System** — serves Maricopa County · (602) 222-6550 · addresses in Phoenix. Listed under: General health issues, Pain management/chronic pain, Chronic disease, Wellness.
+- **PVAHCS Staff Sergeant Alexander W. Conrad Veterans Affairs Health Care Clinic — Phoenix VA Health Care System** — serves Maricopa County · (480) 397-2800 · addresses in Gilbert. Listed under: General health issues, Chronic disease, Aging health issues, Pain management/chronic pain, Death & dying, Wellness.
+- **Rally Point Navigator Program — La Frontera Arizona** — serves Maricopa County. Listed under: Wellness, Chronic disease, Traumatic Brain Injury.
+- **Recreation Therapy — Phoenix VA Health Care System** — serves Maricopa County · (928) 425-0027 · addresses in Gilbert, Globe, Payson, Phoenix, Scottsdale, Show Low. Listed under: Wellness.
+- **Relieving Hunger — Paz de Cristo** — serves Maricopa County · (480) 464-2370 · addresses in Mesa. Listed under: Wellness.
+- **Research Services — Phoenix VA Health Care System** — serves Maricopa County. Listed under: General health issues.
+- **Respite Care — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Riding Lessons — Hunkapi Programs** — serves Maricopa County · (480) 393-0870 · addresses in Scottsdale. Listed under: Wellness.
+- **Safe at Home Community of Care — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Saguaro Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Senior Home Care — Adultcare Assistance Homecare** — serves Maricopa County · (602) 455-1118 · addresses in Phoenix, Sun City, Tucson. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior independence Programs — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 858-2420 · addresses in Scottsdale, Tempe. Listed under: Wellness, Aging health issues, Chronic disease.
+- **Seniors Personal Assistance Corporation** — serves Maricopa County · (480) 278-9194. Listed under: Death & dying, Chronic diseases, General health issues, Aging health issues, Pain management/chronic pain, Wellness.
+- **Serious Mental Illness (SMI) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness, General health issues, Chronic disease.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — serves Maricopa County · (602) 248-6040 · addresses in Phoenix. Listed under: Detox, Residential treatment, Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Sexual Assault Prevention and Response — 161st Air Refueling Wing - Arizona Air National Guard** — serves Maricopa County · (602) 302-9393 · addresses in Phoenix. Listed under: Wellness.
+- **SFMD Free Blood Pressure Screening — City of Surprise** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **She Served - quarterly newsletter designed for women Veterans enrolled with Phoenix VA Health System (PVAHCS) — Phoenix VA Health Care System** — serves Maricopa County. Listed under: Wellness, General health issues, Aging health issues, Chronic disease.
+- **Shopping Services — Foothills Caring Corps** — serves Maricopa County. Listed under: Wellness.
+- **Smooth Way Home Fragile Infant Project — Southwest Human Development** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Solari Warm Line (Peer Support) — Solari, Inc.** — serves Maricopa County · (602) 347-1100. Listed under: Wellness.
+- **Specialized Autism Unit for Children & Adolescents — Aurora Behavioral Health System** — serves Maricopa County · (480) 345-5400 · addresses in Tempe. Listed under: Inpatient, General health issues, Wellness.
+- **SRPMIC Department of Health and Human Services (HHS) — Salt River Pima - Maricopa Indian Community (SRPMIC)** — serves Maricopa County · (480) 362-7740 · addresses in Scottsdale. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Suicide Prevention — MIKID** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Support Groups (Autism) — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Support Groups — MIKID** — serves Maricopa County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Supportive & Palliative Care Programs — Hospice of the Valley** — serves Maricopa County · (602) 234-6750 · addresses in Chandler, Gilbert, Glendale, Phoenix, Scottsdale, Surprise. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Surprise Senior Center — City of Surprise** — serves Maricopa County · (623) 222-2257 · addresses in Surprise. Listed under: Wellness, Weight management, Aging health issues.
+- **SVdP Center for Family Wellness — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in Phoenix. Listed under: Chronic disease, General health issues, Weight management, Wellness.
+- **SVdP Delta Dental of Arizona Oral Health Center — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in Phoenix. Listed under: Dental.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: General health issues, Wellness.
+- **SVDP Free Medical Care at Virginia G. Piper Medical Clinic — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in Phoenix. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+- **SVDP-St. Anne’s Medical Equipment Loan Closet — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in Avondale, Mesa, Phoenix, Scottsdale, Surprise. Listed under: Wellness.
+- **TCAA Hunger Relief — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 858-2420 · addresses in Scottsdale, Tempe. Listed under: Wellness, Aging health issues, Chronic disease.
+- **TCAA's Oasis Drop-In Center — Tempe Community Action Agency (TCAA)** — serves Maricopa County · (480) 590-5514 · addresses in Tempe. Listed under: General health issues, Chronic disease, Wellness.
+- **Tempe CARE 7 - 24-Hour Crisis Response Team — City of Tempe** — serves Maricopa County. Listed under: General health issues, Wellness.
+- **Tempe Emergency Preparedness — Tempe Fire Medical Rescue Department** — serves Maricopa County. Listed under: Wellness.
+- **Tempe FMR Community Outreach & Education Programs — Tempe Fire Medical Rescue Department** — serves Maricopa County · (480) 858-7200 · addresses in Tempe. Listed under: Wellness.
+- **Tempe FMR Community Risk Reduction — Tempe Fire Medical Rescue Department** — serves Maricopa County. Listed under: Wellness.
+- **The HIV Center of Excellence (HIVCOE) for American Indians/Alaska Natives — Phoenix Indian Medical Center (PIMC)** — serves Maricopa County · (602) 263-1200 · addresses in Phoenix. Listed under: General health issues, Chronic disease, Wellness.
+- **The Salvation Army Apache Junction Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 962-9103 · addresses in Apache Junction, Mesa. Listed under: Wellness.
+- **The Salvation Army Chandler Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (602) 560-0021 · addresses in Chandler. Listed under: Wellness.
+- **The Salvation Army Emergency Disaster Services (EDS) — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 934-0469 · addresses in Apache Junction, Casa Grande, Chandler, Glendale, Mesa, Phoenix. Listed under: Wellness.
+- **The Salvation Army Emergency Heat Relief Stations — The Salvation Army Phoenix Metro** — serves Maricopa County · (480) 967-8649 · addresses in Apache Junction, Avondale, Chandler, Glendale, Mesa, Phoenix. Listed under: Wellness.
+- **The Salvation Army Family Services — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 685-3208 · addresses in Phoenix. Listed under: Wellness.
+- **The Salvation Army Glendale Corps Community Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 934-0469 · addresses in Glendale, Peoria, Phoenix. Listed under: Wellness.
+- **The Salvation Army Kroc Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 276-7396 · addresses in Phoenix. Listed under: Wellness.
+- **The Salvation Army Mesa Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 962-9103 · addresses in Apache Junction, Mesa. Listed under: Wellness.
+- **The Salvation Army North West Valley/Sun Cities Corps Community Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (623) 977-1084 · addresses in Glendale, Peoria, Surprise. Listed under: Wellness.
+- **The Salvation Army Phoenix Maryvale Corps Community Center — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 233-9272 · addresses in Glendale, Peoria, Phoenix. Listed under: Wellness.
+- **The Salvation Army Senior Programs — The Salvation Army Phoenix Metro** — serves Maricopa County · (602) 251-2000 · addresses in Mesa, Phoenix. Listed under: Aging health issues, Wellness.
+- **The Salvation Army Tempe Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (480) 945-4758 · addresses in Tempe. Listed under: Wellness.
+- **The Salvation Army Valley of the Sun Korean Corps Community Center — The Salvation Army (Bullhead City/Laughlin Corps)** — serves Maricopa County · (623) 934-5950 · addresses in Avondale, Glendale, Peoria, Phoenix. Listed under: Wellness.
+- **The ‘Bridge’ Emergency Shelter For Men — Community Bridges, Inc.** — serves Maricopa County · (480) 649-1141 · addresses in Mesa. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Therapy services for children — Fusion Care Group** — serves Maricopa County · (888) 688-0248 · addresses in Mesa, Phoenix. Listed under: Wellness.
+- **Therapy services: in-person and virtual visits — Fusion Care Group** — serves Maricopa County · (888) 688-0248 · addresses in Mesa, Phoenix. Listed under: Wellness.
+- **This is MY Life (TIML) — Ability360** — serves Maricopa County · (602) 443-0729 · addresses in Phoenix. Listed under: General health issues, Wellness.
+- **Touching Hearts at Home General Resources** — serves Maricopa County. Listed under: Aging health issues.
+- **Training Programs — MIKID** — serves Maricopa County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — serves Maricopa County · (602) 346-3384 · addresses in Phoenix. Listed under: Wellness.
+- **Transition Age Youth Program — MIKID** — serves Maricopa County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Urgent or Same Day Services — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Phoenix. Listed under: Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **VA Health Benefits Assistance — Veterans Affinity** — serves Maricopa County. Listed under: Wellness, General health issues, Aging health issues, Chronic disease, Death & dying.
+- **Valley of the Sun YMCA Military Outreach Initiative** — serves Maricopa County · (602) 404-9622 · addresses in Chandler, El Mirage, Flagstaff, Glendale, Goodyear, Mesa. Listed under: Wellness.
+- **Veteran and Military Women Muster and Mingle — Veterans First LTD** — serves Maricopa County · addresses in Phoenix. Listed under: Wellness.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: General health issues.
+- **Veteran Transportation for Behavioral Health Services — Banner Health** — serves Maricopa County · (602) 839-2000 · addresses in Chandler, Glendale, Phoenix, Scottsdale, Sun City West. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Veterans Affairs Office — Tohono O’odham Nation** — serves Maricopa County · addresses in Sells. Listed under: General health issues, Wellness.
+- **Veterans Benefits Assistance & Resources — Veterans Affinity** — serves Maricopa County. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Sleep.
+- **Veterans Services — Intensive Treatment Systems** — serves Maricopa County · (602) 996-0099 · addresses in Mesa, Phoenix, San Tan Valley. Listed under: Medication-assisted treatment, Wellness.
+- **Visiting Hearts Home Care** — serves Maricopa County · (623) 220-9118. Listed under: Chronic diseases, General health issues, Aging health issues.
+- **WCSC Veterans Support Office — Wickenburg Community Services Corporation** — serves Maricopa County · (602) 810-1356 · addresses in Wickenburg. Listed under: Wellness.
+- **We Honor Veterans Program — Prime Care Hospice** — serves Maricopa County. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Wellness Program — Awakening Wholeness, Inc.** — serves Maricopa County · (430) 305-2090 · addresses in Scottsdale. Listed under: Wellness, Chronic disease.
+- **Wellness Program — MIKID** — serves Maricopa County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Wellness Ready Nutrition** — serves Maricopa County · (480) 848-5117 · addresses in Mesa. Listed under: Wellness.
+- **Wellness Ready PT Consult** — serves Maricopa County · (480) 848-5117 · addresses in Mesa. Listed under: Wellness.
+- **Wellness Ready Training Session** — serves Maricopa County · (480) 848-5117 · addresses in Mesa. Listed under: Wellness.
+- **Wellness Visits and Pet Therapy — Foothills Caring Corps** — serves Maricopa County. Listed under: Wellness, Aging health issues.
+- **West Valley Vet Center - Phoenix** — serves Maricopa County · (623) 398-8854 · addresses in Peoria. Listed under: Wellness.
+- **West – 24/7 Access Point Clinic — Intensive Treatment Systems** — serves Maricopa County · (623) 247-1234 · addresses in Phoenix. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **White Tank Mountains Chapter- Daughters of the American Revolution** — serves Maricopa County. Listed under: Wellness.
+- **Wickenburg Low-Income Assistance — Town of Wickenburg** — serves Maricopa County · (928) 684-7894 · addresses in Wickenburg. Listed under: Wellness.
+- **Wickenburg Police Department — Town of Wickenburg** — serves Maricopa County · (928) 684-5411 · addresses in Wickenburg. Listed under: Wellness.
+- **Wise Owl Senior Center — Town of Wickenburg** — serves Maricopa County · (928) 684-7894 · addresses in Wickenburg. Listed under: Wellness, Aging health issues.
+- **Women and Infant Service Line (WISL) — Phoenix Indian Medical Center (PIMC)** — serves Maricopa County · (602) 263-1200 · addresses in Phoenix. Listed under: Wellness, General health issues.
+- **Women Veterans Programs — Phoenix VA Health Care System** — serves Maricopa County. Listed under: General health issues.
+- **Women's Health - Addiction Treatment — Intensive Treatment Systems** — serves Maricopa County · (602) 996-0099 · addresses in Mesa, Phoenix, San Tan Valley. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Wellness.
+- **Youth Center — Luke Air Force Base** — serves Maricopa County. Listed under: General health issues.
+- **Youth Council — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — serves Maricopa County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **Youth Services — MIKID** — serves Maricopa County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Wellness.
+- **YWCA Meals on Wheels — YWCA Metropolitan Phoenix** — serves Maricopa County. Listed under: Wellness, Aging health issues.
+
+## Statewide programs under Physical Health, which also serve Maricopa County (95)
+
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: Traumatic Brain Injury, Wellness.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Wellness.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **ADEQ Air Forecasting — Arizona Department of Environmental Quality** — statewide. Listed under: General health issues, Chronic disease, Wellness.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Wellness.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Wellness, General health issues.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Wellness.
+- **Ages and Stages Resources — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: General health issues.
+- **AHCCCS Health Plan (Adults) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 1-5) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age 6-19) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (age <1) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: General health issues.
+- **AHCCCS Health Plan (Caretaker Relatives) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (800) 331-5090. Listed under: Aging health issues.
+- **Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Chronic diseases, General health issues, Aging health issues, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — statewide · (480) 455-3957. Listed under: Chronic disease, Wellness.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Wellness.
+- **Arizona Heat Safety Resource Guide — Arizona Department of Health Services** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Arizona Immunization Program — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: General health issues.
+- **Arizona Long Term Care System (ALTCS) — Arizona Health Care Cost Containment System (AHCCCS)** — statewide · (888) 621-6880. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Aging health issues.
+- **Arizona Military Honors — Arizona Army National Guard** — statewide · (602) 629-4310. Listed under: Death & dying.
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Wellness, Death & dying, Aging health issues.
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Wellness.
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Wellness.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: General health issues, Aging health issues, Chronic disease, Traumatic Brain Injury, Wellness, Dental.
+- **Assisting Veterans and members with Multiple Sclerosis — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **AZGeo Data Hub** — statewide. Listed under: General health issues, Wellness.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Wellness.
+- **BC Support Line — Be Connected** — statewide. Listed under: Wellness.
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Wellness.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Billet Health Pharmacy Services** — statewide · (833) 224-5538. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Borderlands Blog — Borderlands Produce Rescue** — statewide. Listed under: General health issues, Wellness.
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Traumatic Brain Injury, Wellness.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Traumatic Brain Injury, Wellness.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Cancer Prevention & Control Programs — Arizona Department of Health Services** — statewide · (602) 364-0214. Listed under: Chronic disease, Death & dying.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Wellness.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Wellness.
+- **Chemical Emergency Preparedness — The American Red Cross** — statewide. Listed under: Wellness.
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Wellness.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Wellness.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Wellness.
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Aging health issues.
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness, Chronic disease.
+- **Disability Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues.
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **Disease Integration & Services — Arizona Department of Health Services** — statewide · (602) 364-4571. Listed under: General health issues, Chronic disease.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Empty Bowl Pet Food Pantry — Animals and Humans in Disaster, Inc** — statewide · (602) 909-7153. Listed under: Wellness.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: Wellness.
+- **Fireworks Regulations in the City of Phoenix — Phoenix Fire Department** — statewide. Listed under: Wellness.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Wellness.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: General health issues, Aging health issues, Wellness, Pain management/chronic pain.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: General health issues.
+- **Healthcare Resources for Veterans and Service Providers — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Healthy Babies — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Wellness.
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Wellness.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, General health issues, Wellness, Chronic disease.
+- **Home Care** — statewide. Listed under: Aging health issues, Chronic disease, Wellness.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Wellness, General health issues.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging health issues, Death & dying.
+- **Life Enrichment Programs — Helping Hands for Freedom** — statewide. Listed under: Wellness.
+- **MAT Resources — Center for Applied Behavioral Health Policy** — statewide. Listed under: Medication-assisted treatment, Wellness.
+- **Medical Loan Closet — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Chronic disease, Wellness.
+- **Mobile Spay/Neuter & Vaccination Clinics — The Parker Project** — statewide. Listed under: Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Wellness.
+- **Mobilize AZ — Blue Cross Blue Shield of Arizona** — statewide. Listed under: Chronic disease, Wellness.
+- **No Cost Captioned Telephone with Certification — OEI - Outreach, Education & Installations** — statewide. Listed under: Aging health issues.
+- **Obesity Prevention — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Office of Environmental Health — Arizona Department of Health Services** — statewide · (602) 364-3118. Listed under: Chronic disease, Wellness.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Prevent Mosquito-Borne Diseases — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Wellness.
+- **Report Child Abuse or Neglect - Arizona Child Abuse Hotline — Arizona Department of Child Safety (DCS)** — statewide. Listed under: Wellness.
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Aging health issues.
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Senior Rehabilitation Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: General health issues, Aging health issues, Wellness.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. 
+- **St. Joseph Baskets for Homeless Veterans — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Wellness.
+- **Summer Safety — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — statewide · (520) 795-9671. Listed under: Wellness.
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Wellness.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Wellness, Traumatic Brain Injury.
+- **Vector-Borne & Zoonotic Diseases Program — Arizona Department of Health Services** — statewide. Listed under: General health issues, Wellness.
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Wellness.
+- **Vocational Rehabilitation Program — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Traumatic Brain Injury, General health issues.
 
 ## About this page
 

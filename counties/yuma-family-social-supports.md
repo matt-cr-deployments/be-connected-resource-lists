@@ -1,10 +1,233 @@
 # Family & Social Supports in Yuma County: Be Connected resources
 
-## Listed as serving Yuma County under Family & Social Supports (3)
+## Listed as serving Yuma County under Family & Social Supports (78)
 
+- **24/7 Sexual Assault Hotline — Marine Corps Air Station-Yuma (MCAS)** — serves Yuma County · (928) 941-3601 · addresses in MCAS Yuma. Listed under: Aging health issues.
+- **Arizona Statewide Senior Commodity Supplemental Food Program (CSFP) — Arizona Department of Health Services** — serves Yuma County · addresses in Phoenix, Surprise. Listed under: Overall family stress, Aging and elder care.
+- **Blind Services Program — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Overall family stress, Aging and elder care, Disabilities.
+- **Care Services and Assistance — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Overall family stress, Care (in home or in a facility), Caregiving (providing care to another person), Aging and elder care, Disabilities, Children with special needs.
+- **Caregiver Programs — WACOG Area Agency on Aging (Region IV)** — serves Yuma County. Listed under: Care (in home or in a facility), Caregiving (providing care to another person), Aging and elder care.
+- **Catholic Community Services - Deaf & Residential Services — Catholic Community Services Of Southern Arizona Inc.** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: Overall family stress, Care (in home or in a facility), Disabilities, Caregiving (providing care to another person).
+- **CBI Crisis Mobile Teams — Community Bridges, Inc.** — serves Yuma County · (480) 649-1141 · addresses in Mesa, Phoenix. Listed under: Substance use, Overall family stress.
 - **CBI Substance Use Treatment — Community Bridges, Inc.** — serves Yuma County · (602) 273-9999 · addresses in Avondale, Benson, Casa Grande, Globe, Holbrook, Mesa. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Substance use.
+- **CBI Supportive Housing — Community Bridges, Inc.** — serves Yuma County · (520) 586-6171 · addresses in Benson, Holbrook, Mesa, Yuma. Listed under: Detox, Residential treatment, Inpatient, Overall family stress, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Yuma County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Overall family stress, Substance use, Relationships (spouses, significant others).
+- **Client Services — Community Outreach Program for the Deaf** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting, Aging and elder care, Caregiving (providing care to another person), Children with special needs.
+- **Community Engagement for MAT Services — Community Medical Services** — serves Yuma County. Listed under: Medication-assisted treatment, Substance use.
+- **Community Living Center — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Care (in home or in a facility).
+- **Contract Nursing Home Program — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Care (in home or in a facility), Caregiving (providing care to another person).
+- **Correctional Health Services — Community Medical Services** — serves Yuma County. Listed under: Substance use.
+- **Counseling - CCS-Yuma — Catholic Community Services - Yuma** — serves Yuma County · (928) 341-9400 · addresses in Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Daybreak Adult Day Health Care — Catholic Community Services - Yuma** — serves Yuma County · (928) 783-8316 · addresses in Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Care (in home or in a facility), Disabilities, Aging and elder care, Caregiving (providing care to another person).
+- **Disaster Relief — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Overall family stress.
+- **Domestic Violence Services — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Overall family stress, Aging health issues.
+- **Emergency Services — Portable Practical Educational Preparation, Inc.** — serves Yuma County · addresses in Tucson. Listed under: Overall family stress.
+- **Family Law — Community Legal Services** — serves Yuma County · (602) 506-1561 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Family Self-Sufficiency (FSS) Program — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 782-3823 · addresses in Yuma. Listed under: Overall family stress, Disabilities.
+- **Farmworker Law Program — Community Legal Services** — serves Yuma County. Listed under: Overall family stress.
+- **Head Start & Early Head Start — Western Arizona Council of Governments (WACOG)** — serves Yuma County. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Education.
+- **Healthy Relationship Education — Arizona Youth Partnership** — serves Yuma County · (520) 744-9595 · addresses in Globe, Kingman, Lakeside, Marana. Listed under: Education, Relationships (spouses, significant others).
+- **Home Modification — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County. Listed under: Overall family stress.
+- **Independent Living Skills — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **Information and Referral (I&R) — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **Information Referral — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson, Yuma. Listed under: Overall family stress, Substance use, Aging health issues, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Interpreting Services — Community Outreach Program for the Deaf** — serves Yuma County · (520) 792-1906 · addresses in Tucson. Listed under: Disabilities.
+- **Introduction to PGA Golf — PGA HOPE Southwest** — serves Yuma County. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+- **Kinship/Care Giver Support Group — MIKID** — serves Yuma County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress.
 - **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Overall family stress.
+- **Living Skills — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities, Children with special needs.
+- **Lost Peepers — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — serves Yuma County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Overall family stress.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Overall family stress, Substance use.
+- **Men to Men Support Group — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Parenting, Relationships (spouses, significant others), Children with special needs, Caregiving (providing care to another person).
+- **Mental Health Intensive Case Management (MHICM) — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Medication-assisted treatment, Overall family stress.
+- **Mental Health Services — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Substance use.
+- **MLK Youth Career Center** — serves Yuma County · addresses in Yuma. Listed under: Overall family stress.
+- **Multi-Family Service Program (MSP) — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 782-3823 · addresses in Yuma. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — serves Yuma County · (602) 535-4444 · addresses in Flagstaff, Lake Havasu City, Peoria, Phoenix, Prescott, Yuma. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Patient Health Education — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Substance use.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — serves Yuma County · (480) 768-6022 · addresses in Avondale, Mesa, Payson, Phoenix, Tucson, Yuma. Listed under: Detox, Residential treatment, Medication-assisted treatment, Substance use, Overall family stress.
+- **Peer Support & Counseling — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+- **Peer Support Services — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Overall family stress, Substance use.
+- **Peer Support — Community Bridges, Inc.** — serves Yuma County · (480) 838-5550 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Substance use, Overall family stress.
+- **PGA HOPE Golf Program — PGA HOPE Southwest** — serves Yuma County. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+- **Pregnancy & Women's Health Services — Community Medical Services** — serves Yuma County · (480) 499-4599 · addresses in Buckeye, Casa Grande, Glendale, Kingman, Lake Havasu, Mesa. Listed under: Medication-assisted treatment, Overall family stress, Substance use, Parenting.
+- **Rental Assistance Demonstration (RAD) Program — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 782-3823 · addresses in Yuma. Listed under: Overall family stress.
+- **Respite Care — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Caregiving (providing care to another person), Children with special needs, Disabilities, Parenting.
+- **Safe House – Domestic Violence Shelter — Catholic Community Services - Yuma** — serves Yuma County · (928) 341-9400 · addresses in Yuma. Listed under: Aging health issues, Overall family stress, Relationships (spouses, significant others), Parenting.
+- **School Liaison — Marine Corps Air Station-Yuma (MCAS)** — serves Yuma County · addresses in MCAS Yuma. Listed under: Education.
+- **Senior Nutrition – Congregate Meals — Catholic Community Services - Yuma** — serves Yuma County · (928) 782-1105 · addresses in Yuma. Listed under: Overall family stress, Aging and elder care.
+- **Senior Nutrition – Home-Delivered Meals — Catholic Community Services - Yuma** — serves Yuma County. Listed under: Aging and elder care.
+- **SHINE Program — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 318-5800 · addresses in Yuma. Listed under: Overall family stress, Education, Children (early childhood, elementary, adolescents).
 - **SMI Supportive Housing/Residential Programs — Community Bridges, Inc.** — serves Yuma County · (480) 838-5550 · addresses in Benson, Holbrook, Yuma. Listed under: Detox, Residential treatment, Medication-assisted treatment, Overall family stress, Substance use, Relationships (spouses, significant others).
+- **Special Housing Vouchers from HACY — Housing Authority of the City of Yuma (HACY)** — serves Yuma County · (928) 317-9973 · addresses in Yuma. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents).
+- **Support Groups (Autism) — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting, Children with special needs, Caregiving (providing care to another person).
+- **Support Groups — MIKID** — serves Yuma County · (928) 344-1983 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — serves Yuma County · (520) 628-7837 · addresses in Tucson. Listed under: Overall family stress, Relationships (spouses, significant others), Aging and elder care, Caregiving (providing care to another person).
+- **Training Programs — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Aging and elder care, Disabilities, Caregiving (providing care to another person).
+- **Transition Age Youth Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Education, Disabilities, Children with special needs.
+- **Transition Services — SMILE-Services Maximizing Independent Living & Empowerment** — serves Yuma County · (928) 329-6681 · addresses in Yuma. Listed under: Overall family stress, Disabilities.
+- **Valley of the Sun YMCA Military Outreach Initiative** — serves Yuma County · (602) 404-9622 · addresses in Chandler, El Mirage, Flagstaff, Glendale, Goodyear, Mesa. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Care (in home or in a facility).
+- **Veteran Services — American Red Cross - Southern Arizona** — serves Yuma County · (520) 318-6740 · addresses in Tucson. Listed under: Overall family stress, Substance use, Disabilities, Caregiving (providing care to another person), Care (in home or in a facility), Aging and elder care.
+- **WACOG Aging, Disability and Family Helpline Resource Center — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (800) 782-1886. Listed under: Overall family stress, Disabilities, Aging and elder care, Caregiving (providing care to another person), Care (in home or in a facility).
+- **WACOG Benefits Enrollment Center (BEC) — WACOG Area Agency on Aging (Region IV)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **WACOG Case Management — Western Arizona Council of Governments (WACOG)** — serves Yuma County · (928) 782-1886 · addresses in Kingman, Yuma. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Children with special needs, Disabilities, Aging and elder care.
+- **Wellness Program — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Disabilities, Children with special needs, Parenting, Education.
+- **Women's Behavioral Health — Southern Arizona VA Health Care System** — serves Yuma County · (520) 792-1450 · addresses in Tucson. Listed under: Overall family stress, Aging health issues, Parenting, Care (in home or in a facility), Aging and elder care, Relationships (spouses, significant others).
+- **Youth Council — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Youth Peer Support — MIKID** — serves Yuma County · (520) 509-6669 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Relationships (spouses, significant others), Children with special needs.
+- **Youth Services — MIKID** — serves Yuma County · (520) 882-0142 · addresses in Casa Grande, Kingman, Nogales, Phoenix, Tucson, Yuma. Listed under: Overall family stress, Children (early childhood, elementary, adolescents), Education, Children with special needs, Disabilities, Caregiving (providing care to another person).
+- **Youth Warm Line — HOPE, Incorporated** — serves Yuma County. Listed under: Children (early childhood, elementary, adolescents).
+- **Yuma Chapter- Daughters of the American Revolution** — serves Yuma County. Listed under: Overall family stress, Education.
+- **Yuma Vet Center — Tucson Vet Center** — serves Yuma County · (928) 271-8700 · addresses in Yuma. Listed under: Overall family stress, Relationships (spouses, significant others), Disabilities.
+
+## Statewide programs under Family & Social Supports, which also serve Yuma County (145)
+
+- **5 Ways to Prepare for Monsoon Season in Arizona — Salt River Project (SRP)** — statewide. Listed under: Overall family stress.
+- **AAWL Dog Behavior Resources — Arizona Animal Welfare League & SPCA (AAWL & SPCA)** — statewide · (602) 273-6852. Listed under: Overall family stress.
+- **About Brain Injury — Brain Injury Association of Arizona** — statewide · (888) 500-9165. Listed under: Overall family stress, Disabilities.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Overall family stress, Aging health issues, Child abuse.
+- **ACESDV Legal Information and Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse.
+- **ACESDV Publications & Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Aging health issues, Child abuse, Relationships (spouses, significant others).
+- **ACESDV Technical Assistance & Training for Organizations — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Aging health issues, Child abuse.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others).
+- **Active Parenting Now — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Overall family stress, Substance use, Relationships (spouses, significant others), Parenting.
+- **ADHS Community Injury Prevention from Prescription Drugs — Arizona Department of Health Services** — statewide. Listed under: Substance use.
+- **ADHS Women, Infants, and Children (WIC) - AZ Supplemental Nutrition Program — Arizona Department of Health Services** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents).
+- **ADOH Rental Eviction Prevention Assistance — Arizona Department of Housing (ADOH)** — statewide. Listed under: Overall family stress.
+- **Adult Protective Services — DES Division of Aging and Adult Services** — statewide. Listed under: Aging and elder care.
+- **ADVS State Veteran Homes — Arizona Department of Veterans' Services (ADVS)** — statewide · (602) 248-1550. Listed under: Care (in home or in a facility), Caregiving (providing care to another person).
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Overall family stress, Education, Disabilities, Aging and elder care, Caregiving (providing care to another person).
+- **Ages and Stages Resources — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Education, Caregiving (providing care to another person).
+- **Arizona Chapter - National MS Society — National Multiple Sclerosis Society** — statewide · (480) 455-3957. Listed under: Overall family stress, Education, Disabilities, Caregiving (providing care to another person).
+- **Arizona Domestic Violence Resources — Arizona Supreme Court** — statewide · (800) 782-6400. Listed under: Overall family stress, Aging health issues, Relationships (spouses, significant others).
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Overall family stress.
+- **Arizona Emergency Information Network (AzEIN) — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide. Listed under: Overall family stress.
+- **Arizona Family Caregiver Reimbursement Program (FCRP) — Arizona Caregiver Coalition** — statewide · (888) 737-7494. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **Arizona Governor’s Office of Education — State of Arizona** — statewide. Listed under: Overall family stress, Education.
+- **Arizona Immunization Program — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Children (early childhood, elementary, adolescents).
+- **Arizona Indian Education Association — Inter Tribal Council of Arizona (ITCA)** — statewide · (602) 258-4822. Listed under: Education, Overall family stress, Children (early childhood, elementary, adolescents).
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Overall family stress, Aging and elder care, Disabilities.
+- **Arizona Parent Kit/Guía para Padres — First Things First (AVSE)** — statewide · (877) 705-5437. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Caregiving (providing care to another person).
+- **Arizona Prescription Drug Misuse & Abuse Initiative Online Toolkit — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Substance use.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Arizona Receives Approval For Online SNAP Purchases From USDA — State of Arizona** — statewide. Listed under: Overall family stress.
+- **Arizona Rehabilitation Services — DES Division of Employment & Rehabilitation Services** — statewide. Listed under: Disabilities.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Overall family stress, Aging health issues, Child abuse, Substance use, Disabilities, Aging and elder care.
+- **Arizona Self Help — Wildfire AZ** — statewide · (602) 604-0640. Listed under: Overall family stress, Disabilities, Aging and elder care, Children with special needs, Education.
+- **Arizona Superior Courts — Arizona Supreme Court** — statewide · (602) 452-3396. Listed under: Overall family stress, Aging health issues, Relationships (spouses, significant others).
+- **Arizona Trail Association VETS Program** — statewide · (970) 779-5740. Listed under: Overall family stress.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Overall family stress, Substance use, Relationships (spouses, significant others), Disabilities, Aging and elder care, Caregiving (providing care to another person).
+- **Arizona/New Mexico Interpreting SuperCenter — Catholic Community Services - Deaf & Residential Services** — statewide. Listed under: Disabilities.
+- **AZCourtHelp Initiative - Arizona Supreme Court** — statewide. Listed under: Overall family stress.
+- **AZPOINT - Arizona Protective Order Initiation and Notification Tool — Arizona Supreme Court** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others), Parenting.
+- **BaRC (Barrier Reduction Collaborative) Project — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Overall family stress, Aging health issues.
+- **BC Support Line — Be Connected** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Substance use, Relationships (spouses, significant others), Care (in home or in a facility).
+- **BC Training & Events Opportunities — Be Connected** — statewide. Listed under: Overall family stress.
+- **BIAAZ Veterans and Family Services — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Overall family stress, Disabilities, Caregiving (providing care to another person).
+- **Brain Injury Alliance 101 — Brain Injury Association of Arizona** — statewide · (602) 508-8024. Listed under: Overall family stress, Disabilities.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Overall family stress, Disabilities.
+- **Butters Pet Care Fund — Brain Injury Association of Arizona** — statewide. Listed under: Overall family stress, Disabilities.
+- **Camp Can Do — Brain Injury Association of Arizona** — statewide. Listed under: Overall family stress, Disabilities.
+- **CapTel from T-Mobile Connects Veterans** — statewide. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting.
+- **Caregiver Resource Line — Arizona Caregiver Coalition** — statewide. Listed under: Overall family stress, Aging and elder care, Caregiving (providing care to another person), Disabilities, Children with special needs.
+- **Caregiver Respite Programs — Arizona Caregiver Coalition** — statewide. Listed under: Overall family stress, Children with special needs, Disabilities, Aging and elder care, Caregiving (providing care to another person).
+- **Cash Assistance — Arizona Department of Economic Security (DES) - AVSE** — statewide. Listed under: Overall family stress, Children (early childhood, elementary, adolescents).
+- **Chapter and Community Program — Team RWB Phoenix** — statewide. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Chemical Emergency Preparedness — The American Red Cross** — statewide. Listed under: Overall family stress.
+- **Child & Family Resources** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Care (in home or in a facility), Education, Children with special needs.
+- **Child Care Resource & Referral - ARIZONA — Child & Family Resources** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Care (in home or in a facility).
+- **Commodity Senior Food Program (CSFP) — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 264-2255. Listed under: Overall family stress, Aging and elder care.
+- **Community Action Agencies list in Arizona — Wildfire AZ** — statewide. Listed under: Overall family stress.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Aging health issues, Child abuse.
+- **Consultations, Groups, and Workshops — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting.
+- **CPLC Parenting Arizona — CPLC (Chicanos por la Causa)** — statewide · (602) 248-0428. Listed under: Overall family stress, Substance use, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents), Children with special needs.
+- **Cru Military Combat Trauma Support Groups** — statewide. Listed under: Relationships (spouses, significant others).
+- **Dementia Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Residential treatment, Overall family stress, Relationships (spouses, significant others), Care (in home or in a facility), Education, Aging and elder care, Caregiving (providing care to another person).
+- **DES Family Caregiver Support Program (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility), Caregiving (providing care to another person).
+- **DES Family Caregiver Support Program (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility), Caregiving (providing care to another person).
+- **Detox and Chemical Dependency — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Medication-assisted treatment, Overall family stress, Substance use.
+- **Disability Care Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Overall family stress, Care (in home or in a facility), Children with special needs, Disabilities, Caregiving (providing care to another person).
+- **Disaster Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Overall family stress.
+- **Domestic Violence Legal Document Preparer Program (DVLDP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Aging health issues.
+- **Domestic Violence Program — DES Division of Aging and Adult Services** — statewide · (520) 836-1239. Listed under: Aging health issues.
+- **Early Intervention Program — Arizona Department of Economic Security (DES) - AVSE** — statewide · (602) 532-9960. Listed under: Children with special needs.
+- **Educational News — Love Your School** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Education.
+- **Family Support — MIKID** — statewide · (520) 882-0142. Listed under: Overall family stress, Substance use, Parenting, Children (early childhood, elementary, adolescents), Care (in home or in a facility), Children with special needs.
+- **FOCUS Resilience Training — FOCUS (Families OverComing Under Stress)** — statewide · (928) 269-4288. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting.
+- **FREE Yoga Digital Downloads and Digital Health Library — Honor House** — statewide. Listed under: Overall family stress.
+- **Geographic Information System (GIS) Applications — Arizona Department of Health Services** — statewide. Listed under: Children (early childhood, elementary, adolescents).
+- **Government Assistance Eligibility & Assistance — Wildfire AZ** — statewide. Listed under: Overall family stress.
+- **Guitars for Vets Music Lessons for Vets** — statewide · (855) 448-4376. Listed under: Disabilities.
+- **Healing of Memories Workshop — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Relationships (spouses, significant others).
+- **Health Information and Education Center — Raising Special Kids** — statewide · (602) 242-4366. Listed under: Children with special needs.
+- **Healthy Aging Liaison — Arizona Department of Health Services Healthy Aging Initiative** — statewide. Listed under: Overall family stress, Care (in home or in a facility), Disabilities, Aging and elder care, Caregiving (providing care to another person).
+- **Healthy Babies — Arizona Department of Health Services** — statewide · (602) 542-1025. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Care (in home or in a facility), Children with special needs, Caregiving (providing care to another person).
+- **Heat Wave Safety — The American Red Cross** — statewide. Listed under: Overall family stress.
+- **Holistic Personalized Care — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Detox, Inpatient, Intensive outpatient (IOP), Partial hospitalization, Medication-assisted treatment, Overall family stress, Substance use, Relationships (spouses, significant others), Disabilities.
+- **Home and Community Based Services (18-60 with disability) — DES Division of Aging and Adult Services** — statewide · (602) 262-2255. Listed under: Aging and elder care, Caregiving (providing care to another person), Care (in home or in a facility), Disabilities.
+- **Home and Community Based Services (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Children (early childhood, elementary, adolescents), Aging and elder care, Caregiving (providing care to another person), Disabilities, Care (in home or in a facility).
+- **Home Care** — statewide. Listed under: Overall family stress, Care (in home or in a facility), Aging and elder care, Caregiving (providing care to another person), Disabilities.
+- **How to Apply for AHCCCS — Health Choice Arizona** — statewide. Listed under: Overall family stress.
+- **iCanConnect — Catholic Community Services - Deaf & Residential Services** — statewide · (520) 622-2801. Listed under: Disabilities, Overall family stress.
+- **In-Home Services — Terros Health** — statewide. Listed under: Parenting, Children (early childhood, elementary, adolescents).
+- **Information & Referral — Ability360** — statewide. Listed under: Overall family stress, Disabilities, Aging and elder care.
+- **Inpatient Mental Health & Substance Abuse Treatment — Aurora Behavioral Health System** — statewide · (480) 345-5400. Listed under: Inpatient, Medication-assisted treatment, Overall family stress, Substance use.
+- **La Frontera/EMPACT Crisis Hotlines — La Frontera Arizona** — statewide · (480) 784-1500. Listed under: Overall family stress, Aging health issues, Substance use, Relationships (spouses, significant others), Parenting, Child abuse.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging and elder care, Overall family stress.
+- **Life Enrichment Programs — Helping Hands for Freedom** — statewide. Listed under: Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents), Overall family stress.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Aging and elder care, Caregiving (providing care to another person).
+- **Medication-Assisted Treatment — Valle del Sol** — statewide · (602) 536-4153. Listed under: Intensive outpatient (IOP), Medication-assisted treatment, Substance use.
+- **Mental Health Services — Transitions Counseling and Consulting** — statewide · (602) 363-0629. Listed under: Medication-assisted treatment, Overall family stress, Relationships (spouses, significant others), Children (early childhood, elementary, adolescents).
+- **Missing Persons Service — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Mobilization for Positive Futures — Child & Family Resources** — statewide · (520) 881-8940. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Education.
+- **Moral Injury Education — Casa Veterans Ministry** — statewide · (480) 948-7460. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Mother's Grace** — statewide. Listed under: Overall family stress, Domestic violence, Parenting, Children (early childhood, elementary, adolescents).
+- **Nutrition Services Program - Congregate Nutrition Site (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility).
+- **Nutrition Services Program - Congregate Nutrition Site (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility).
+- **Nutrition Services Program - Home Delivery (18-60 with a disability) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility).
+- **Nutrition Services Program - Home Delivery (over 60) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Care (in home or in a facility).
+- **Obesity Prevention — Arizona Department of Health Services** — statewide. Listed under: Education, Parenting.
+- **Office of Tribal Relations — Office of Community Engagement** — statewide. Listed under: Children (early childhood, elementary, adolescents), Children with special needs, Disabilities, Aging and elder care, Aging health issues, Child abuse.
+- **Opioid Treatment — Fountain Hills Recovery** — statewide. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Substance use.
+- **Outpatient Substance Abuse Treatment — Horizon Health and Wellness** — statewide. Listed under: Residential treatment, Inpatient, Intensive outpatient (IOP), Substance use.
+- **Parent School Choice Resources — School Choice Arizona** — statewide. Listed under: Education.
+- **Parent Support — Raising Special Kids** — statewide · (602) 242-4366. Listed under: Children with special needs.
+- **Parent Training and Information (PTI) Center — Raising Special Kids** — statewide · (602) 242-4366. Listed under: Children with special needs, Education, Parenting.
+- **People’s Information Guide — Wildfire AZ** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents), Children with special needs, Disabilities, Aging and elder care.
+- **Prevent Mosquito-Borne Diseases — Arizona Department of Health Services** — statewide. Listed under: Overall family stress.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Overall family stress, Aging health issues, Substance use, Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Promoting Public Awareness through Education & Training — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Relationships (spouses, significant others), Parenting.
+- **Protective Order Program (POP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Aging health issues, Child abuse.
+- **Public Information Office — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Overall family stress.
+- **Public Policy Advocacy — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Aging health issues, Child abuse, Relationships (spouses, significant others).
+- **Quality First — First Things First (AVSE)** — statewide. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents).
+- **Readmission Rescue Program — First Light Home Care** — statewide · (623) 565-9302. Listed under: Overall family stress, Caregiving (providing care to another person), Aging and elder care.
+- **Report Child Abuse or Neglect - Arizona Child Abuse Hotline — Arizona Department of Child Safety (DCS)** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Parenting, Children (early childhood, elementary, adolescents).
+- **Resource & Support Group Database — Arizona Caregiver Coalition** — statewide. Listed under: Overall family stress, Aging and elder care, Caregiving (providing care to another person), Care (in home or in a facility).
+- **Respite Care Services — First Light Home Care** — statewide. Listed under: Overall family stress, Care (in home or in a facility), Aging and elder care, Caregiving (providing care to another person).
+- **Rural Health Resources — Arizona Alliance for Community Health Centers (AACHC)** — statewide. Listed under: Overall family stress, Aging health issues, Child abuse, Substance use.
+- **Senior Rehabilitation Services — First Light Home Care** — statewide · (623) 565-9302. Listed under: Overall family stress, Care (in home or in a facility), Aging and elder care, Caregiving (providing care to another person).
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Overall family stress.
+- **Solari Statewide Crisis Line (Mental Health Life Line) — Solari, Inc.** — statewide · (844) 534-4673. Listed under: Overall family stress, Aging health issues, Child abuse, Substance use, Aging and elder care, Caregiving (providing care to another person).
+- **Summer Safety — Arizona Department of Health Services** — statewide. Listed under: Children (early childhood, elementary, adolescents), Parenting, Caregiving (providing care to another person).
+- **Survivor Emergency Relief Fund (SERFund) — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Overall family stress, Aging health issues.
+- **SVDP Home Visits — St Vincent de Paul of Phoenix** — statewide. Listed under: Overall family stress.
+- **SVDP Homelessness Prevention — St Vincent de Paul of Phoenix** — statewide · (602) 850-6900. Listed under: Overall family stress.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — statewide · (602) 267-4100. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — statewide · (520) 795-9671. Listed under: Overall family stress, Parenting, Children (early childhood, elementary, adolescents).
+- **Too Good For Drugs — Child & Family Resources** — statewide. Listed under: Overall family stress, Substance use, Parenting, Education, Children (early childhood, elementary, adolescents).
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Overall family stress.
+- **Transportation Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Overall family stress, Disabilities, Substance use.
+- **Utility Assistance — Brain Injury Association of Arizona** — statewide. Listed under: Overall family stress, Disabilities.
+- **Vector-Borne & Zoonotic Diseases Program — Arizona Department of Health Services** — statewide. Listed under: Overall family stress.
+- **Veteran Caregiver Resources in Arizona — Paralyzed Veterans of America Arizona Chapter** — statewide. Listed under: Overall family stress, Disabilities, Caregiving (providing care to another person).
+- **Veteran Service Officer Program from CapTel — CapTel from T-Mobile** — statewide. Listed under: Overall family stress, Relationships (spouses, significant others).
+- **Victims' Rights Enforcement Program (VREP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Aging health issues, Child abuse.
+- **Vital Records — Arizona Department of Health Services** — statewide · (602) 364-1300. Listed under: Relationships (spouses, significant others), Parenting, Children (early childhood, elementary, adolescents).
+- **Warrior Getaway — Joni and Friends Arizona** — statewide · (928) 255-0611. Listed under: Overall family stress, Relationships (spouses, significant others), Parenting, Children with special needs, Disabilities.
+- **Wildfire Safety — The American Red Cross** — statewide. Listed under: Overall family stress.
+- **Workshops — Raising Special Kids** — statewide. Listed under: Children with special needs, Parenting, Overall family stress.
 
 ## About this page
 

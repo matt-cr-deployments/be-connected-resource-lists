@@ -1,0 +1,73 @@
+# Physical Health: Be Connected resources in Prescott, Arizona
+
+- **Aquatics Center — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness.
+- **Arizona Families F.I.R.S.T. (AFF) — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **Audiology — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues.
+- **Become a Patient at NAVAHCS — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Medication-assisted treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Behavioral Health** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Wellness.
+- **Cafe on Rosser Dining Room — Prescott Meals On Wheels** — in Prescott: 1280 E Rosser St, Prescott 86301 · (928) 445-7630. Listed under: Wellness.
+- **Catholic Charities General Resources for Veterans — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **Community Living Center — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Contract Nursing Home Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Wellness.
+- **Dental Services — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Dental.
+- **Disease Prevention/Epidemiology Division — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Dr. Cameron McKinley VA Veterans Center - Prescott** — in Prescott: 3180 Stillwater Drive, Suite A, Prescott 86305 · (928) 778-3469. Listed under: Wellness.
+- **Environmental Health Division — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Family Planning/Reproductive Health** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: Wellness, General health issues.
+- **Fitness Center — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: General health issues, Aging health issues, Chronic disease, Weight management, Wellness.
+- **Food Pantry/Community Closet — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: Wellness.
+- **General Surgery — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Health and Safety Certifications — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness, General health issues.
+- **Health Promotion Disease Prevention (HPDP) Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Homeless Patient Aligned Care Teams — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Aging health issues.
+- **Hospice and Palliative Care — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Death & dying.
+- **Immunizations — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Aging health issues, Wellness.
+- **Just for Girls! — North Star Youth Partnership** — in Prescott: 750 Whipple Street, Prescott 86301. Listed under: Wellness.
+- **Kinesiotherapy — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Pain management/chronic pain.
+- **Laboratory — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Low Vision Clinic — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Medical Care** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Medical Foster Home — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Aging health issues, Wellness.
+- **Medical Loan Closet — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 778-2531. Listed under: General health issues, Aging health issues, Chronic disease.
+- **Mental Health Residential Rehabilitation Treatment Program (MH RRTP) — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Detox, Residential treatment, General health issues, Chronic disease, Wellness.
+- **NAVAHCS Domiciliary — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Residential treatment, Inpatient, General health issues, Chronic disease, Wellness.
+- **NAVAHCS Emergency Department — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues.
+- **NAVAHCS Greenhouse — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Wellness.
+- **NAVAHCS Health Care for Re-Entry Veterans Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **NAVAHCS Homeless Veterans Health Care in Northern AZ — Northern Arizona VA Health Care System** — in Prescott: 3180 Stillwater Drive, Suite A, Prescott 86305 · (928) 778-3469. Listed under: General health issues, Aging health issues, Chronic disease, Wellness, Dental.
+- **NAVAHCS Recreation Therapy — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **NAVAHCS Women's Specialty Care — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Death & dying, Wellness, Aging health issues, Pain management/chronic pain.
+- **NAVAHCS Women’s Health Primary Care Provider — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **North Star Youth Partnership — Catholic Charities Community Services** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Wellness.
+- **Nuclear Medicine — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Wellness.
+- **Nutrition Counseling — Yavapai Regional Medical Center** — in Prescott: 930 Division Street, Prescott 86301 · (928) 771-5794. Listed under: General health issues, Aging health issues, Chronic disease, Weight management, Wellness.
+- **Nutrition Services — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: Wellness, Aging health issues.
+- **Oncology — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Pediatrics** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: General health issues, Chronic disease, Wellness, Dental.
+- **Physical Medicine and Rehabilitation (PM&R) Clinic — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Physical Rehabilitation Services — Yavapai Regional Medical Center** — in Prescott: 1112 Iron Springs Rd., Prescott 86301. Listed under: General health issues, Wellness, Pain management/chronic pain, Chronic disease, Aging health issues, Traumatic Brain Injury.
+- **Physical Therapy — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Podiatry — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Programs for Moms and Babies — Yavapai County Community Health Services** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 771-3122. Listed under: General health issues, Wellness.
+- **Prosthetics and Sensory Aids Service — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness.
+- **Safe Sitter Training — North Star Youth Partnership** — in Prescott: 434 W. Gurley Street, Prescott 86301 · (928) 708-7214. Listed under: Wellness.
+- **Specialty Clinic Lab (Microbiology) — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Chronic disease, Wellness.
+- **Sports Programs — James Family Prescott YMCA** — in Prescott: 750 Whipple Street, Prescott 86301 · (928) 445-7221. Listed under: Wellness.
+- **Substance Use Disorders — West Yavapai Guidance Clinic** — in Prescott: Walk In Crisis Location:, 642 Dameron Drive, Prescott 86301 · (928) 445-5211. Listed under: Residential treatment, Inpatient, General health issues, Wellness.
+- **Supportive Housing — NAZCARE, Inc.** — in Prescott: 599 White Spar Rd, Prescott 86303 · (928) 442-9205. Listed under: Wellness.
+- **The James Family Heart Center — Yavapai Regional Medical Center** — in Prescott: YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Prescott: 237 S. Montezuma Street, Prescott 86303 · (928) 778-0150. Listed under: Wellness.
+- **The Spine Center at YRMC — Yavapai Regional Medical Center** — in Prescott: 1001 Division Street, Prescott 86301 · (928) 445-4818. Listed under: Aging health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Tobacco Cessation — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Medication-assisted treatment, Wellness.
+- **Transplant Program — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: Chronic disease.
+- **Veteran Health Education — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues.
+- **Well Woman Health Check** — in Prescott: 1090 Commerce Drive, Prescott 86305 · (928) 583-1000. Listed under: Chronic disease, Wellness.
+- **Women's General Care — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Rehabilitation Care — Northern Arizona VA Health Care System** — in Prescott: 500 N Highway 89, Prescott 86313 · (928) 445-4860. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain, Aging health issues.
+- **YRMC Emergency Services — Yavapai Regional Medical Center** — in Prescott: YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: Wellness, General health issues, Traumatic Brain Injury, Pain management/chronic pain, Death & dying, Chronic disease.
+- **YRMC PhysicianCare — Yavapai Regional Medical Center** — in Prescott: YRMC West, 1003 Willow Creek Road, Prescott 86301 · (928) 445-2700. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Weight management.
+
+## About this page
+
+This page lists programs with an address in Prescott. Programs based elsewhere that serve Prescott are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

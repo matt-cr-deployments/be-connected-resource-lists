@@ -1,8 +1,13 @@
 # Be Connected resources in Prescott, Arizona
 
-- **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — in Prescott: 141 South McCormick Street, Suite 200, Prescott 86303 · (928) 445-9240. Listed under: Foreclosure prevention, Eviction prevention, Affordable housing programs, Finding housing, Landlord/tenant, Other.
-- **Substance Use Disorders — West Yavapai Guidance Clinic** — in Prescott: Walk In Crisis Location:, 642 Dameron Drive, Prescott 86301 · (928) 445-5211. Listed under: Residential treatment, Inpatient, General mental health services, Co-occurring disorders (mental health/substance use), Mental health wellness, Other types of substance use and addiction, Alcohol, Drugs, Other.
+Programs with an address in Prescott, listed by topic:
 
-## About this page
-
-This page lists programs with an address in Prescott. Programs based elsewhere that serve Prescott are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.
+- [Housing & Homelessness in Prescott](prescott-housing-homelessness.md): 14 programs
+- [Mental Health & Substance Use in Prescott](prescott-mental-health-substance-use.md): 31 programs
+- [Finances & Benefits in Prescott](prescott-finances-benefits.md): 34 programs
+- [Legal in Prescott](prescott-legal.md): 17 programs
+- [Employment in Prescott](prescott-employment.md): 17 programs
+- [Physical Health in Prescott](prescott-physical-health.md): 67 programs
+- [Family & Social Supports in Prescott](prescott-family-social-supports.md): 39 programs
+- [Higher Education in Prescott](prescott-higher-education.md): 8 programs
+- [Spirituality in Prescott](prescott-spirituality.md): 5 programs

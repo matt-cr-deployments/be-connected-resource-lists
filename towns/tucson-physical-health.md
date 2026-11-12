@@ -1,0 +1,160 @@
+# Physical Health: Be Connected resources in Tucson, Arizona
+
+- **(STOP) Sober Truth On Preventing Underage Drinking — Child & Family Resources** — in Tucson: Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **24 Hour Live-In Assistance — Adultcare Assistance Homecare** — in Tucson: 7040 N Oracle Rd B, Tucson 85704 · (520) 575-8000. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Animal Shelter Admissions Services — Humane Society of Southern Arizona** — in Tucson: 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness, Death & dying.
+- **Arizona Trail Association VETS Program** — in Tucson: 738 N. 5th Avenue, #201, Tucson 85705 · (602) 252-4794. Listed under: Wellness.
+- **Assistance for enrolling or renewing in Arizona’s AHCCCS health care coverage — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Assistive Technology — Arizona State Schools for the Deaf and the Blind** — in Tucson: 1200 W. Speedway Blvd., Tucson 85745 · (520) 770-3863. 
+- **Cactus Bloom — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 3130 E Broadway Blvd., Tucson 85716. Listed under: General health issues, Aging health issues.
+- **Caregiver Training — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, General health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury.
+- **Caregiving Support Groups — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Tucson: 2950 N. Dodge Blvd., Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Substance Use Treatment — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite B, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite 110, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI Veteran Programs — Community Bridges, Inc.** — in Tucson: 2950 N. Dodge Blvd., Suite A, Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Wellness.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Child and Adolescent Wellness — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Wellness.
+- **Client Services — Community Outreach Program for the Deaf** — in Tucson: 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: General health issues, Wellness.
+- **Clothing Boutique — Girlfriends Closet** — in Tucson: 60 Harrison Road, Tucson 85748. Listed under: Wellness.
+- **Community Living Center — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Aging health issues, Wellness.
+- **Contract Nursing Home Program — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness.
+- **Cooperative Services — Arizona State Schools for the Deaf and the Blind** — in Tucson: 1200 W Speedway Blvd, Tucson 85745. Listed under: Chronic disease, Wellness.
+- **Crisis Care Services — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Medication-assisted treatment, Wellness.
+- **Crisis Intervention, Advocacy, Information & Referral Services — Southern Arizona Center Against Sexual Assault** — in Tucson: 101 W Irvington Road, Ofice 3-A, Tucson 85714 · (520) 434-0195. Listed under: Wellness, General health issues.
+- **Crisis Intervention, Advocacy, Information & Referral Services — Southern Arizona Center Against Sexual Assault** — in Tucson: 1600 N. Country Club, Tucson 85716 · (520) 327-1171. Listed under: Wellness, General health issues.
+- **Disaster Relief — American Red Cross - Southern Arizona** — in Tucson: 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Wellness.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — in Tucson: 8467 East Broadway Blvd, Tucson 85710 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (18-60 with disability) — DES Division of Aging and Adult Services** — in Tucson: 7601 S. Camino Benem, Tucson 85757 · (520) 879-5530. Listed under: Aging health issues, Chronic disease, Wellness, General health issues.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — in Tucson: 8467 East Broadway Blvd, Tucson 85710 · (520) 790-7262. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Disease Prevention and Health Promotion Program (over 60) — DES Division of Aging and Adult Services** — in Tucson: 7601 S. Camino Benem, Tucson 85757 · (520) 879-5530. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Dog Training — Handi Dogs** — in Tucson: 75 S. Montego Drive, Tucson 85710. Listed under: General health issues.
+- **El Rio OB/GYN — El Rio Community Health Center** — in Tucson: 225 W Irvington Rd, Tucson 85714 · (520) 670-3909. Listed under: Wellness.
+- **El Rio OB/GYN — El Rio Community Health Center** — in Tucson: 6950 E Golf Links Rd, Tucson 85730 · (520) 670-3909. Listed under: Wellness.
+- **El Rio OB/GYN — El Rio Community Health Center** — in Tucson: 1500 W Commerce Ct # 1, Tucson 85746 · (520) 670-3909. Listed under: Wellness.
+- **Emergency Department — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues.
+- **End of Life Care Planning — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Death & dying.
+- **Family Support — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Food Assistance Development Programs in Southern Arizona — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **Food Education Programs — Community Food Bank of Southern Arizona** — in Tucson: 2405 S Cottonwood Ln., Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Fresh Produce for the Public — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Gastroenterology (GI) Services — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Aging health issues, Chronic disease, Wellness.
+- **Gender-Confirmation Services — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Partial hospitalization, General health issues, Wellness.
+- **General Food Bank Service Locations — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: General health issues, Wellness.
+- **Guy Talk — Child & Family Resources** — in Tucson: Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **Health Promotion & Gardening — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Health Promotion & Gardening — Community Food Bank of Southern Arizona** — in Tucson: 2405 S Cottonwood Ln., Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Healthy Living Classes — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Weight management.
+- **Hemodialysis Unit (HDU) — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease.
+- **Hospice & Palliative Care — Agape Hospice and Palliative Care** — in Tucson: 2980 N Swan Rd. Ste. 222, Tucson 85712. Listed under: Death & dying.
+- **HSSA Education Programs — Humane Society of Southern Arizona** — in Tucson: 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **HSSA Outreach Services — Humane Society of Southern Arizona** — in Tucson: 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — in Tucson: 3003 S Country Club Rd, Tucson 85713 · (520) 622-0525. Listed under: Wellness.
+- **Hunger Relief - Food Assistance — Community Food Bank of Southern Arizona** — in Tucson: 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **ICS - Community Health Outreach — Interfaith Community Services** — in Tucson: On the grounds of Christ the King Episcopal Church, 2820 W. Ina Road, Tucson 85741 · (520) 297-6049. Listed under: Wellness.
+- **In-Home Care — Arizona’s Choice Home Care Solutions LLC** — in Tucson: 5151 E Broadway Blvd, Tucson 85711 · (520) 900-8757. Listed under: Aging health issues.
+- **Independent Living Services — Ability360** — in Tucson: 1001 N. Alvernon Way, Tucson 85711 · (520) 449-8375. Listed under: Wellness.
+- **Information & Referral Helpline — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Information Referral — American Red Cross - Southern Arizona** — in Tucson: 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Traumatic Brain Injury, Wellness.
+- **Inpatient Medical Detox Services — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite A, Tucson 85701 · (520) 323-1312. Listed under: Detox, Inpatient, Wellness.
+- **Integrated Care — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: General health issues, Wellness.
+- **Interpreting Services — Community Outreach Program for the Deaf** — in Tucson: 268 W. Adams Street, Tucson 85705 · (520) 792-1906. Listed under: General health issues, Aging health issues, Chronic disease, Death & dying, Traumatic Brain Injury, Wellness.
+- **Laboratory — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness.
+- **Laboratory — Southern Arizona VA Health Care System** — in Tucson: 7395 S. Houghton Road, Ste 129, Tucson 85747 · (520) 664-1831. Listed under: General health issues, Wellness.
+- **Laboratory — Southern Arizona VA Health Care System** — in Tucson: 2945 W. Ina Road, Tucson 85741 · (520) 219-2418. Listed under: General health issues, Wellness.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Tucson: 8467 East Broadway Blvd, Tucson 85710-4009 · (520) 790-7262. Listed under: Aging health issues, Death & dying.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — in Tucson: 7601 S. Camino Benem, Tucson 85757 · (520) 879-5530. Listed under: Aging health issues, Death & dying.
+- **Lesbian, Gay, Bisexual and Transgender Veteran Care — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness.
+- **Living Skills — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Long-Term Care - ALTCS Workshop — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying.
+- **Medical and Disability Services — DAV Chapter 4 Tucson** — in Tucson: 4145 W. Ina Road, Suite 131, Tucson 85741 · (520) 791-9067. Listed under: Aging health issues, Chronic disease, Death & dying, General health issues, Wellness.
+- **Medicare — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues.
+- **Medicare — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Aging health issues.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Tucson: 6802 E. Broadway, Tucson 85710 · (520) 314-1400. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Tucson: 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Medication-assisted treatment, Wellness.
+- **Medication-Assisted Treatment (MAT) Options — Community Medical Services** — in Tucson: 2001 W. Orange Grove Rd., Suite 202, Tucson 85704 · (520) 775-3500. Listed under: Medication-assisted treatment, Wellness.
+- **Men to Men Support Group — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Mental Health Outpatient Services — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Military Sexual Trauma (F) — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness.
+- **Mobilization for Positive Futures — Child & Family Resources** — in Tucson: Angel Charity Building, 2800 E. Broadway Blvd., Tucson 85716 · (520) 881-8940. Listed under: Wellness.
+- **MOVE! — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Weight management, Wellness.
+- **Navigation Services — HOPE, Incorporated** — in Tucson: 1200 N. Country Club, Tucson 85716. Listed under: General health issues, Wellness.
+- **Nutrition Clinic at the Tucson VA Medical Center — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness, General health issues, Chronic disease.
+- **One-on-One Caregiver Consultation — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **One-on-One Caregiver Consultation — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Parent Assistance Center (PAC) — Family Involvement Center** — in Tucson: 1200 N. Country Club Rd., Tucson 85716 · (602) 412-4102. Listed under: Wellness.
+- **Patient Health Education — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Death & dying, Aging health issues, Pain management/chronic pain, Wellness.
+- **Patient-Centered Medical Home — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite B, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Medication-assisted treatment, Wellness.
+- **PCOA Katie Dusenberry Healthy Aging Center — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Wellness, Chronic disease, Pain management/chronic pain.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 8999 E. Tanque Verde Rd., Tucson 85749 · (520) 351-4511. Listed under: Wellness.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 2545 E. Ajo Way, Tucson 85713 · (520) 351-3888. Listed under: Wellness.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 7300 N. Shannon Rd., Tucson 85741 · (520) 351-6311. Listed under: Wellness.
+- **PCSD Community Health & Safety Services — Pima County Sheriff's Department** — in Tucson: 6261 N. Sandario Rd., Tucson 85743 · (520) 351-3811. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Tucson: 6802 E. Broadway, Tucson 85710 · (520) 314-1400. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Tucson: 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Wellness.
+- **Peer Support Services — Community Medical Services** — in Tucson: 2001 W. Orange Grove Rd., Suite 202, Tucson 85704 · (520) 775-3500. Listed under: Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Tucson: 250 S. Toole Ave., Suite C, Tucson 85701 · (520) 323-1312. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Peer Support — Community Bridges, Inc.** — in Tucson: 2950 N. Dodge Blvd., Tucson 85716 · (520) 327-9863. Listed under: Detox, Residential treatment, Inpatient, Intensive outpatient (IOP), Medication-assisted treatment, Wellness.
+- **Pet Adoptions — Humane Society of Southern Arizona** — in Tucson: 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **Pet Adoptions — Humane Society of Southern Arizona** — in Tucson: 5870 E Broadway Boulevard, Tucson 85711 · (520) 327-6088. Listed under: Wellness.
+- **Pharmacy — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Pain management/chronic pain, Wellness.
+- **Physical Medicine and Rehabilitation Services (PM&R) — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury, Aging health issues.
+- **Physical Medicine and Rehabilitation Services (PM&R) — Southern Arizona VA Health Care System** — in Tucson: 7395 S. Houghton Road, Ste 129, Tucson 85747 · (520) 664-1831. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury, Aging health issues.
+- **Physical Medicine and Rehabilitation Services (PM&R) — Southern Arizona VA Health Care System** — in Tucson: 2945 W. Ina Road, Tucson 85741 · (520) 219-2418. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness, Traumatic Brain Injury, Aging health issues.
+- **Pima County Health Department Clinics Reopen** — in Tucson: 3550 N 1st Ave, Tucson 85719 · (520) 724-2850. Listed under: General health issues, Wellness, Chronic disease.
+- **Pima County Health Department Clinics Reopen** — in Tucson: 6920 E Broadway Blvd, Tucson 85710 · (520) 724-9650. Listed under: General health issues, Wellness, Chronic disease.
+- **Pima County Health Department Clinics Reopen** — in Tucson: 1493 W Commerce Ct., Tucson 85745 · (520) 724-7900. Listed under: General health issues, Wellness, Chronic disease.
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — in Tucson: 901 E. 46th Street, Tucson 85713 · (520) 792-5704. Listed under: Residential treatment, Wellness.
+- **PPEP Integrated Care — Portable Practical Educational Preparation, Inc.** — in Tucson: 3425 N Olsen Ave, Tucson 85719 · (520) 320-1059. Listed under: Residential treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Tucson: 6802 E. Broadway, Tucson 85710 · (520) 314-1400. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Tucson: 2001 W. Orange Grove Rd., Suite 202, Tucson 85704 · (520) 775-3500. Listed under: Medication-assisted treatment, Wellness.
+- **Pregnancy & Women's Health Services — Community Medical Services** — in Tucson: 3720 S Park Ave, Ste 601, Tucson 85713 · (520) 485-3200. Listed under: Medication-assisted treatment, Wellness.
+- **Prenatal and Postpartum Depression Medical Examination and Medication — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 502 N Silverbell Road, Tucson 85745 · (520) 202-1716. Listed under: Medication-assisted treatment, General health issues.
+- **Primary Care — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: General health issues, Wellness, Chronic disease, Pain management/chronic pain.
+- **Primary Health Care (50+) — CODAC Health, Recovery, & Wellness, Inc.** — in Tucson: 3130 E Broadway Blvd., Tucson 85716. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Aging health issues, Wellness.
+- **Rape Aggression Defense (R.A.D.) courses — Pima County Sheriff's Department** — in Tucson: Main Headquarters, 1750 E. Benson Highway, Tucson 85714 · (520) 351-4600. Listed under: Wellness.
+- **Rescue To Service — Handi Dogs** — in Tucson: 75 S. Montego Drive, Tucson 85710. Listed under: General health issues.
+- **Respite Care — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — in Tucson: 8467 E. Broadway Blvd., Tucson 85710 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Rights and Benefits — Pima Council on Aging (PCOA) Region II** — in Tucson: 600 South Country Club Rd, Tucson 85716 · (520) 790-7262. Listed under: Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Senior Home Care — Adultcare Assistance Homecare** — in Tucson: 7040 N Oracle Rd B, Tucson 85704 · (520) 575-8000. Listed under: General health issues, Aging health issues, Chronic disease, Wellness.
+- **Services in Southern AZ for Veterans Experiencing Homelessness — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Wellness, Aging health issues, Chronic disease, Dental.
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — in Tucson: 2405 S Cottonwood Ln., Tucson 85713 · (520) 766-3663. Listed under: Wellness.
+- **Specialized Community Resource Locations — Community Food Bank of Southern Arizona** — in Tucson: 845 N. Main Ave., Tucson 85705 · (520) 882-5641. Listed under: Wellness.
+- **Spinal Cord Injury and Disorders Team — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease, Pain management/chronic pain, Traumatic Brain Injury, Wellness.
+- **Support Groups (Autism) — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Support Groups — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **SVDP Tucson Support Services — St. Vincent de Paul of Southern Arizona** — in Tucson: 829 South 6th Avenue, Tucson 85701 · (520) 628-7837. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 1625 S. 3rd Avenue, Tucson 85713 · (520) 620-1076. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 218 E. Prince Road, Tucson 85705 · (520) 888-1299. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 2717 S. 6th Avenue, Tucson 85713 · (520) 624-1741. Listed under: Wellness.
+- **The Salvation Army - Veteran Services — The Salvation Army (Bullhead City/Laughlin Corps)** — in Tucson: 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Wellness.
+- **The Salvation Army All Nations Corps Community Center — The Salvation Army Tucson** — in Tucson: 1001 N Richey Blvd, Tucson 85716 · (520) 795-4504. Listed under: Wellness.
+- **The Salvation Army Amphi Corps Community Center — The Salvation Army Tucson** — in Tucson: 218 E. Prince Road, Tucson 85705 · (520) 888-1299. Listed under: Wellness.
+- **The Salvation Army Hospitality House — The Salvation Army Tucson** — in Tucson: Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Aging health issues, Wellness.
+- **The Salvation Army Summer Camp — The Salvation Army Tucson** — in Tucson: Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Wellness.
+- **The Salvation Army Tucson Social Services** — in Tucson: Tucson Area Coordination Office, 1002 N Main Ave, Tucson 85705 · (520) 795-9671. Listed under: Wellness.
+- **The Salvation Army Tucson South Corps Community Center** — in Tucson: 1625 S. 3rd Avenue, Tucson 85713 · (520) 620-1076. Listed under: Wellness.
+- **Training Programs — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness, Chronic disease, Pain management/chronic pain, Weight management.
+- **Transition Age Youth Program — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Tucson Vet Center** — in Tucson: 2525 E. Broadway Blvd., Suite 100, Tucson 85716 · (520) 882-0333. Listed under: Wellness.
+- **VA Northwest Tucson Clinic — Southern Arizona VA Health Care System** — in Tucson: 2945 W. Ina Road, Tucson 85741 · (520) 219-2418. Listed under: General health issues, Chronic disease, Pain management/chronic pain, Wellness.
+- **VA Southeast Tucson Clinic — Southern Arizona VA Health Care System** — in Tucson: 7395 S. Houghton Road, Ste 129, Tucson 85747 · (520) 664-1831. Listed under: General health issues, Aging health issues, Chronic disease, Pain management/chronic pain, Weight management, Wellness.
+- **Veteran Services — American Red Cross - Southern Arizona** — in Tucson: 2916 E Broadway Blvd, Tucson 85716 · (520) 318-6740. Listed under: General health issues, Aging health issues, Traumatic Brain Injury, Wellness.
+- **Veterans Program — TMC Hospice** — in Tucson: Peppi's House - TMC Hospice, 2715 N Wyatt Dr, Tucson 85712 · (520) 324-2438. Listed under: Aging health issues, Chronic disease, Death & dying, Pain management/chronic pain, Wellness.
+- **Veterinary Clinic Services — Humane Society of Southern Arizona** — in Tucson: 635 W. Roger Rd., Tucson 85705 · (520) 327-6088. Listed under: Wellness.
+- **Wellness Program — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Wellness — Living Out Loud: Health & Wellness Center** — in Tucson: 3130 E. Broadway Blvd, Tucson 85716 · (520) 202-1832. Listed under: Wellness.
+- **Women's General Care — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: General health issues, Aging health issues, Weight management, Wellness.
+- **Women's Rehabilitation Care — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Chronic disease, General health issues, Pain management/chronic pain, Wellness, Aging health issues.
+- **Women's Specialty Care — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Wellness, Chronic disease, General health issues, Death & dying.
+- **Women’s Health Care Program — Southern Arizona VA Health Care System** — in Tucson: 3601 South 6th Avenue, Tucson 85723 · (520) 792-1450. Listed under: Residential treatment, General health issues, Aging health issues, Chronic disease, Death & dying, Wellness.
+- **Youth Council — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Youth Peer Support — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+- **Youth Services — MIKID** — in Tucson: 925 East Bilby Road, Tucson 85706 · (520) 882-0142. Listed under: Wellness.
+
+## About this page
+
+This page lists programs with an address in Tucson. Programs based elsewhere that serve Tucson are on the county pages. "Listed under" is how the Be Connected team filed a program. Program intake confirms what is offered now.

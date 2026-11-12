@@ -1,10 +1,150 @@
 # Legal in Maricopa County: Be Connected resources
 
-## Listed as serving Maricopa County under Legal (3)
+## Listed as serving Maricopa County under Legal (82)
 
+- **Agency Review — Tempe Community Council (TCC)** — serves Maricopa County · (480) 858-2300 · addresses in Tempe. Listed under: Other.
+- **Area Agency on Aging Resource Guide — Area Agency on Aging, Region One - Maricopa County** — serves Maricopa County · (888) 783-7500. Listed under: Other.
+- **Arizona Domestic Violence Legal Assistance Project — Arizona Foundation for Legal Services & Education** — serves Maricopa County · addresses in Phoenix. Listed under: Family law.
+- **Arizona Teen Court Association — Arizona Foundation for Legal Services & Education** — serves Maricopa County · (602) 340-7366. Listed under: Family law, Other.
+- **Aster Senior Centers — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Family law, Benefits.
+- **Avondale Citizen Leadership Academy — Avondale Neighborhood & Family Services Department** — serves Maricopa County. Listed under: Other.
+- **Benefits Enrollment Center — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Family law, Benefits.
+- **Block Watch Information — Phoenix Police Department** — serves Maricopa County · (602) 495-5009 · addresses in Phoenix, Scottsdale. Listed under: Other.
+- **CARE 7 - Veteran Services — City of Tempe** — serves Maricopa County · (480) 858-2388 · addresses in Tempe. Listed under: Benefits, Family law, Misdemeanor, Felony, Other.
+- **CARE 7 - Victim Assistance — City of Tempe** — serves Maricopa County · (480) 350-5400 · addresses in Tempe. Listed under: Family law, Misdemeanor, Felony, Other.
+- **Case Management — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Benefits, Employment, Discharge status.
+- **CBI Veteran Programs — Community Bridges, Inc.** — serves Maricopa County · (928) 341-4220 · addresses in Avondale, Benson, Bisbee, Casa Grande, Globe, Holbrook. Listed under: Detox, Residential treatment, Inpatient, Medication-assisted treatment, Other.
+- **CBI Women & Children Programs — Community Bridges, Inc.** — serves Maricopa County · (480) 461-1711 · addresses in Mesa. Listed under: Other.
+- **CBI’s Psychiatric Inpatient Care Services — Community Bridges, Inc.** — serves Maricopa County · (623) 907-6520 · addresses in Avondale, Benson, Casa Grande, Mesa, Phoenix, Tucson. Listed under: Detox, Inpatient, Medication-assisted treatment, Other, Benefits.
+- **Changing Lives Center for Women & Children — Phoenix Rescue Mission** — serves Maricopa County · (602) 688-6211 · addresses in Phoenix. Listed under: Other, Family law.
+- **Child Development and Family Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Family law, Landlord/tenant.
+- **Community Assistance Services — Foothills Caring Corps** — serves Maricopa County. Listed under: Other.
+- **Consumer Law — Community Legal Services** — serves Maricopa County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Other.
+- **Crosiers in Phoenix — Crosier Fathers and Brothers** — serves Maricopa County · (602) 443-7100 · addresses in Phoenix. Listed under: Other.
+- **Domestic Violence Services — Community Legal Services** — serves Maricopa County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Family law, Other.
+- **Family Law Services — JacksonWhite Law** — serves Maricopa County · (480) 467-4337 · addresses in Mesa. Listed under: Family law.
+- **Family Law — Community Legal Services** — serves Maricopa County · (602) 506-1561 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Family law.
+- **Family Services Centers - Emergency Assistance — Phoenix Human Services Department** — serves Maricopa County · (602) 534-2433 · addresses in Phoenix. Listed under: Family law, Landlord/tenant, Benefits.
+- **Farmworker Law Program — Community Legal Services** — serves Maricopa County. Listed under: Benefits, Employment, Other.
+- **Find Help Phoenix (FHP) — Maricopa County Department of Public Health (MCDPH)** — serves Maricopa County. Listed under: Landlord/tenant, Family law, Employment, Benefits, Other.
+- **Fire Prevention Division — Phoenix Fire Department** — serves Maricopa County · (602) 262-6297 · addresses in Phoenix. Listed under: Other.
+- **Forensic Assertive Community Treatment (FACT) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Residential treatment, Felony, Misdemeanor, Benefits.
+- **Foster Care & Adoption (Central Arizona|Phoenix area) — Catholic Charities Community Services** — serves Maricopa County · addresses in Phoenix. Listed under: Family law.
+- **Guardianships and Conservatorships Legal Services — JacksonWhite Law** — serves Maricopa County · (480) 467-4337 · addresses in Mesa, Peoria, Scottsdale. Listed under: Other, Family law.
+- **Health & Economic Security — Community Legal Services** — serves Maricopa County. Listed under: Benefits.
+- **Helping Women & Families Thrive — Hope Women's Center** — serves Maricopa County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. Listed under: Family law, Other.
+- **Hope Initiative for Healthy Families — Hope Women's Center** — serves Maricopa County · (480) 983-4673 · addresses in Apache Junction, Coolidge, El Mirage, Maricopa, Phoenix. Listed under: Family law, Other.
 - **Housing Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Landlord/tenant.
+- **HSC Homelessness Prevention Services — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. Listed under: Benefits, Felony, Other.
+- **HSC Resources — Human Services Campus (Keys to Change)** — serves Maricopa County · (602) 229-5155 · addresses in Phoenix. Listed under: Other, Felony, Misdemeanor, Benefits.
+- **In-Home Support Services — Aster Aging, Inc.** — serves Maricopa County. Listed under: Family law, Benefits.
+- **Independent Living Services — Ability360** — serves Maricopa County · (602) 386-4566 · addresses in Coolidge, Glendale, Phoenix, Tucson. Listed under: Other, Benefits.
+- **Independent Living Workshop — Ability360** — serves Maricopa County · (602) 256-2245 · addresses in Phoenix. Listed under: Landlord/tenant, Benefits.
+- **Inspector General — 161st Air Refueling Wing - Arizona Air National Guard** — serves Maricopa County. Listed under: Other.
+- **Intimate Partner Violence (IPV) Assistance Program — Phoenix VA Health Care System** — serves Maricopa County · (602) 277-5551 · addresses in Gilbert, Globe, Payson, Phoenix, Scottsdale, Show Low. Listed under: Family law.
+- **IOLTA - The Arizona Program for the Community It Serves — Arizona Foundation for Legal Services & Education** — serves Maricopa County. Listed under: Other, Landlord/tenant, Family law, Benefits, Employment.
+- **Law-Related Education — Arizona Foundation for Legal Services & Education** — serves Maricopa County. Listed under: Other.
+- **LawForKids.org — Arizona Foundation for Legal Services & Education** — serves Maricopa County. Listed under: Other.
+- **LawForSeniors.org — Arizona Foundation for Legal Services & Education** — serves Maricopa County. Listed under: Landlord/tenant, Family law, Other, Employment, Benefits.
+- **Legal Assistance for Low-Income & Tribal Veterans — DNA People’s Legal Services** — serves Maricopa County · (928) 871-4151 · addresses in Chinle, Flagstaff, Keams Canyon, Tuba City, Window Rock. Listed under: Landlord/tenant, Family law, Benefits, Employment, Other.
 - **Legal Services for Low Income Arizona Residents-Housing — Community Legal Services** — serves Maricopa County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Landlord/tenant, Other.
+- **Low Income Taxpayer Clinic (LITC) — Community Legal Services** — serves Maricopa County · (602) 258-3434 · addresses in Kingman, Phoenix, Prescott, San Luis, Yuma. Listed under: Other.
+- **Luke AFB Legal Assistance — Luke Air Force Base** — serves Maricopa County · (623) 856-6901 · addresses in Luke AFB. Listed under: Benefits, Discharge status, Family law, Landlord/tenant, Employment, Other.
+- **Mediation Program — City of Surprise** — serves Maricopa County. Listed under: Landlord/tenant, Employment, Other.
+- **Mental Health Outpatient Services — Family Involvement Center** — serves Maricopa County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Other, Benefits, Family law.
+- **Mesa Vet Center — Tucson Vet Center** — serves Maricopa County · (480) 610-6727 · addresses in Mesa. Listed under: Benefits, Other.
+- **Monthly Community Block Watch & Neighborhood Meetings — Phoenix Block Watch Advisory Board** — serves Maricopa County. Listed under: Other.
+- **My Career Advisor — Goodwill of Central and Northern Arizona** — serves Maricopa County · (602) 535-4444 · addresses in Flagstaff, Lake Havasu City, Peoria, Phoenix, Prescott, Yuma. Listed under: Benefits, Employment, Other.
+- **Outreach and Social Services Program — Aster Aging, Inc.** — serves Maricopa County · (480) 962-5612 · addresses in Mesa. Listed under: Family law, Benefits.
+- **Parents for Parents Program — Family Involvement Center** — serves Maricopa County · (928) 440-6180 · addresses in Flagstaff, Phoenix, Prescott Valley, Tucson. Listed under: Family law, Other.
+- **Phoenix FD Community Outreach — Phoenix Fire Department** — serves Maricopa County · (602) 262-6297 · addresses in Phoenix. Listed under: Other.
+- **Probate Legal Services — JacksonWhite Law** — serves Maricopa County · (480) 467-4337 · addresses in Mesa. Listed under: Family law, Other.
+- **Rally Point Navigator Program — La Frontera Arizona** — serves Maricopa County. Listed under: Other, Benefits, Misdemeanor, Felony.
+- **Reducing Homelessness in Mesa — City of Mesa** — serves Maricopa County · (480) 644-3000 · addresses in Mesa. Listed under: Other.
+- **Report Animal Abuse — Arizona Humane Society** — serves Maricopa County. Listed under: Other, Felony.
+- **Safe Driving Campaign — Town of Gilbert** — serves Maricopa County · (480) 503-6871 · addresses in Gilbert. Listed under: Other.
+- **Serious Mental Illness (SMI) — Community Bridges, Inc.** — serves Maricopa County · (480) 838-5550 · addresses in Mesa. Listed under: Detox, Residential treatment, Medication-assisted treatment, Felony, Misdemeanor, Other, Benefits.
+- **Services at Phoenix VA for Veterans Experiencing Homelessness — Phoenix VA Health Care System** — serves Maricopa County · (602) 248-6040 · addresses in Phoenix. Listed under: Detox, Residential treatment, Medication-assisted treatment, Other, Benefits, Misdemeanor.
+- **Set Aside Criminal Convictions & Expungement Clinics — Community Legal Services** — serves Maricopa County. Listed under: Felony, Misdemeanor, Other.
+- **Sex Trafficking - DIGNITY Diversion program — Catholic Charities Community Services** — serves Maricopa County. Listed under: Other.
+- **Social Services Referrals — Surprise Resource Center** — serves Maricopa County. Listed under: Other.
+- **SRPMIC Veterans Representative Office — Salt River Pima - Maricopa Indian Community (SRPMIC)** — serves Maricopa County · (480) 362-7884 · addresses in Scottsdale. Listed under: Benefits.
+- **SVDP Dining Rooms — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 266-4673 · addresses in El Mirage, Mesa, Phoenix. Listed under: Other.
 - **SVDP Ministry to the Recently Released — St Vincent de Paul of Phoenix** — serves Maricopa County · (602) 850-6900 · addresses in Phoenix. Listed under: Felony, Other.
+- **The Arizona High School Mock Trial program — City of Surprise** — serves Maricopa County. Listed under: Other.
+- **The Office of the Staff Judge Advocate — 162nd Wing - Arizona Air National Guard** — serves Maricopa County. Listed under: Landlord/tenant, Family law, Benefits, Employment, Discharge status, Other.
+- **Transforming Lives Center (TLC) for Men — Phoenix Rescue Mission** — serves Maricopa County · (602) 346-3384 · addresses in Phoenix. Listed under: Family law, Other.
+- **Vacation Watch Service — City of Surprise** — serves Maricopa County. Listed under: Other, Landlord/tenant.
+- **VBA Phoenix Regional Office (RO) — Veterans Benefits Administration (VBA)** — serves Maricopa County · (800) 827-1000 · addresses in Phoenix. Listed under: Benefits.
+- **Veteran Support Services — Central Arizona Shelter Services (CASS)** — serves Maricopa County · (602) 256-6945 · addresses in Phoenix. Listed under: Family law, Benefits, Employment, Discharge status.
+- **Veterans Affairs Office — Tohono O’odham Nation** — serves Maricopa County · addresses in Sells. Listed under: Benefits, Employment, Other.
+- **Veterans Court (Maricopa County)** — serves Maricopa County · (602) 506-3204 · addresses in Phoenix. Listed under: Misdemeanor, Other.
+- **Victim Advocate Program — City of Surprise** — serves Maricopa County. Listed under: Misdemeanor, Felony.
+- **WCSC Veterans Support Office — Wickenburg Community Services Corporation** — serves Maricopa County · (602) 810-1356 · addresses in Wickenburg. Listed under: Benefits, Family law, Other.
+- **We The People Summer Institute — Arizona Foundation for Legal Services & Education** — serves Maricopa County. Listed under: Other.
+- **West Valley Vet Center - Phoenix** — serves Maricopa County · (623) 398-8854 · addresses in Peoria. Listed under: Benefits, Other.
+- **Wickenburg Police Department — Town of Wickenburg** — serves Maricopa County · (928) 684-5411 · addresses in Wickenburg. Listed under: Other.
+
+## Statewide programs under Legal, which also serve Maricopa County (58)
+
+- **ACDL Legal Services Request for Assistance — Arizona Center for Disability Law (ACDL)** — statewide. Listed under: Benefits, Employment, Other.
+- **ACESDV Arizona Sexual and Domestic Violence Helpline — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (800) 782-6400. Listed under: Other, Family law.
+- **ACESDV Legal Information and Resources — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Family law, Other.
+- **ACESDV Technical Assistance & Training for Organizations — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Family law, Other.
+- **ACESDV YouTube Channel — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Family law, Other.
+- **Advocacy and Public Policy — Alliance of Arizona Nonprofits** — statewide. Listed under: Other.
+- **ADVS Veteran Benefits Guide — Arizona Department of Veterans' Services (ADVS)** — statewide. Listed under: Benefits, Other.
+- **America’s SBDC Business Resiliency — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Other.
+- **America’s SBDCs Proudly Serve America’s Veterans — America’s SBDC (Small Business Development Centers)** — statewide · (928) 526-7644. Listed under: Other.
+- **Arizona Chamber Foundation — The Arizona Chamber of Commerce & Industry** — statewide · (602) 248-9172. 
+- **Arizona County Election Officials Contact Information — Arizona Department of State** — statewide · (877) 843-8683. Listed under: Other.
+- **Arizona Domestic Violence Resources — Arizona Supreme Court** — statewide · (800) 782-6400. Listed under: Family law, Other.
+- **Arizona Emergency Eviction and Utility Assistance Community Action Programs and Agencies — Arizona Department of Housing (ADOH)** — statewide · (602) 771-1000. Listed under: Landlord/tenant, Benefits, Other.
+- **Arizona Find a Lawyer — State Bar of Arizona** — statewide. Listed under: Benefits, Landlord/tenant, Family law, Employment, Discharge status, Other.
+- **Arizona Geographic Information Council (AGIC) — Arizona State Land Department (ASLD)** — statewide. Listed under: Other.
+- **Arizona Long-Term Care System (ALTCS) Assistance — JacksonWhite Law** — statewide · (480) 467-4337. Listed under: Benefits.
+- **Arizona Probate Court Information & Resources — Arizona Supreme Court** — statewide · (602) 372-5375. Listed under: Family law, Other.
+- **Arizona Resource Directory — 211 Arizona** — statewide · (877) 211-8661. Listed under: Family law, Benefits, Other, Landlord/tenant.
+- **Arizona Superior Courts — Arizona Supreme Court** — statewide · (602) 452-3396. Listed under: Landlord/tenant, Family law, Employment, Other, Misdemeanor, Felony.
+- **Arizona Veterans StandDown Alliance (AVSA) — Arizona Housing Coalition** — statewide · (602) 340-9393. Listed under: Landlord/tenant, Family law, Benefits, Employment, Discharge status, Misdemeanor.
+- **Arizona Voter Information Portal — Arizona Department of State** — statewide. Listed under: Other.
+- **Attorney/Consumer Assistance Program (A/CAP) — State Bar of Arizona** — statewide · (602) 340-7280. Listed under: Other.
+- **AZ Attorney General Consumer Protection — Arizona Attorney General’s Office** — statewide · (602) 542-5763. Listed under: Landlord/tenant, Family law, Benefits, Other.
+- **AZ Attorney General Resources for Seniors & Elders — Arizona Attorney General’s Office** — statewide · (602) 542-2124. Listed under: Family law.
+- **AZ MVD Now - MVD Expands At-Home Services and Restricts Office Visits — Arizona Department of Transportation (ADOT)** — statewide. Listed under: Other.
+- **AZCourtHelp Initiative - Arizona Supreme Court** — statewide. Listed under: Landlord/tenant, Family law, Other.
+- **AZCourtHelp.org — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Landlord/tenant, Family law, Benefits, Employment, Discharge status, Misdemeanor.
+- **AZEvictionHelp — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Landlord/tenant, Other.
+- **AZGeo Data Hub** — statewide. Listed under: Other.
+- **AZLawHelp.org — Arizona Foundation for Legal Services & Education** — statewide · (866) 637-5341. Listed under: Family law, Landlord/tenant, Benefits, Employment, Other.
+- **AZPOINT - Arizona Protective Order Initiation and Notification Tool — Arizona Supreme Court** — statewide. Listed under: Family law, Other.
+- **AZPVA Veteran Benefits Service Office — Paralyzed Veterans of America Arizona Chapter** — statewide · (602) 244-9168. Listed under: Benefits.
+- **Bankruptcy 101 Educational Videos — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Other.
+- **BC Support Line — Be Connected** — statewide. Listed under: Landlord/tenant, Benefits, Family law, Discharge status, Other.
+- **Become An Advocate — Arizona Caregiver Coalition** — statewide. Listed under: Other.
+- **Brain Injury Resource Information Line — Brain Injury Association of Arizona** — statewide. Listed under: Benefits, Other.
+- **Chamber Business News — The Arizona Chamber of Commerce & Industry** — statewide. Listed under: Other.
+- **Community Collaboration — Arizona Coalition To End Sexual and Domestic Violence** — statewide · (602) 279-2900. Listed under: Family law, Other.
+- **Consumer Brochures — State Bar of Arizona** — statewide. Listed under: Landlord/tenant, Family law, Benefits, Employment, Other.
+- **Domestic Violence Legal Document Preparer Program (DVLDP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Family law, Other.
+- **FREE Marijuana Expungement Legal Aid Clinics — Arizona Marijuana Expungement Coalition (AMEC)** — statewide. Listed under: Other.
+- **Housing Stability Court Navigator Program — Arizona Supreme Court** — statewide · (928) 817-4174. Listed under: Landlord/tenant, Other.
+- **LawForVeterans.org — Arizona Foundation for Legal Services & Education** — statewide. Listed under: Landlord/tenant, Family law, Benefits, Employment, Other.
+- **Legal Help and Education — State Bar of Arizona** — statewide · (602) 252-4804. Listed under: Landlord/tenant, Family law, Benefits, Employment, Misdemeanor, Felony.
+- **Legal Services Assistance — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Other.
+- **Long Term Care Ombudsman (LTCO) — DES Division of Aging and Adult Services** — statewide · (602) 264-2255. Listed under: Other.
+- **Office of the Governor — State of Arizona** — statewide. Listed under: Other.
+- **PRIMER: Arizona’s Commitment To Breaking Down Barriers For Veterans — Governor’s Office of Youth, Faith and Family (GOYFF)** — statewide. Listed under: Benefits, Landlord/tenant, Family law, Other.
+- **Promoting Public Awareness through Education & Training — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Family law, Other.
+- **Protective Order Program (POP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Family law, Other.
+- **Public Policy Advocacy — Arizona Coalition To End Sexual and Domestic Violence** — statewide. Listed under: Family law, Other.
+- **Road to Rights — Arizona Department of State** — statewide. Listed under: Benefits, Employment, Felony, Other.
+- **Service Member and Family Resources — Arizona Department of Emergency and Military Affairs (DEMA)** — statewide · (602) 267-2700. Listed under: Employment.
+- **Services for Business Owners — Arizona Department of State** — statewide. Listed under: Other.
+- **Tool for Renters and Landlords to Find Emergency Rental Assistance — U.S. Interagency Council on Homelessness (USICH)** — statewide. Listed under: Other, Landlord/tenant.
+- **UAV Copper Shield Award Nominations — Unified Arizona Veterans** — statewide. Listed under: Other.
+- **Victims' Rights Enforcement Program (VREP) — Legal Services for Crime Victims in Arizona** — statewide. Listed under: Family law, Other.
+- **Virtual Expungement Clinic App — Arizona Marijuana Expungement Coalition (AMEC)** — statewide. Listed under: Other.
 
 ## About this page
 
